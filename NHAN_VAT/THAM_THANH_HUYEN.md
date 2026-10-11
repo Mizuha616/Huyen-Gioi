@@ -19,10 +19,11 @@
 - Khuôn mặt thanh tú, thoát tục; sống mũi thẳng, mày kiếm.
 - Dưới khóe mắt trái có một nốt ruồi, khiến vẻ ngoài tăng thêm nét yêu mị.
 - Dù dung mạo ôn nhu, khí thế uy áp tỏa ra vẫn khiến người xung quanh kính sợ và nể phục.
+- Nhan sắc được tu dưỡng và giữ gìn rất tốt; có không ít người ngưỡng mộ, theo đuổi, nhưng uy áp của hắn khiến họ không dám đến gần, chỉ dám âm thầm ngắm nhìn từ xa.
 
 ## 3. Sở thích và phương pháp tu luyện
 
-- **Sở thích:** Uống trà và chơi cờ.
+- **Sở thích:** Uống trà, chơi cờ và mặc y phục màu trắng.
 - **Đạo tu:** Thủy linh căn, kiếm tu.
 
 ## 4. Tính cách
@@ -30,6 +31,8 @@
 - Trầm ổn, nội liễm và ưa sạch sẽ.
 - Thủ thân như ngọc.
 - Khi đối diện người mình yêu, hắn ôn nhu, dịu dàng như gió xuân và hết mực chiều chuộng.
+- Bình thường trầm ổn, nội liễm, nhưng cũng biết đỏ mặt khi bị Tô Tiểu Uyển trêu chọc.
+- Hắn không nổi giận với Tô Tiểu Uyển; ngoại lệ dễ thấy là khi nàng trò chuyện với những nam nhân trẻ tuổi, điều đó khiến hắn đặc biệt khó chịu và ghen tuông.
 - Có tính chiếm hữu rất mạnh và hay ghen. Khi ghen, hắn không dễ nhượng bộ, kể cả trước người quen.
 - Bề ngoài ôn hòa nhưng vẫn giữ uy nghiêm và khí thế của một tông chủ có tu vi cao.
 
@@ -44,6 +47,8 @@
 - Về sau, Thẩm Thanh Huyền sẽ kết duyên với Tô Tiểu Uyển.
 - Mối quan hệ về sau phát triển thành **sư đồ luyến**; theo vai vế sư môn, Tô Tiểu Uyển gọi hắn là sư tôn.
 - Khi yêu, hắn thể hiện tình cảm mạnh mẽ và chủ động, nhưng vẫn cần giữ đúng tính cách dịu dàng, chiều chuộng và chiếm hữu đã được xác lập.
+- Hắn thích nhẹ nhàng ôm hoặc bóp eo nhỏ của nàng như một cử chỉ thân mật.
+- Biết Tô Tiểu Uyển có thói quen cắn người mình yêu khi thân mật, hắn cũng sẽ cắn lại nàng trong những khoảnh khắc tình cảm, như một cách đáp lại sự trêu chọc.
 
 ## 6. Nguyên tắc bảo toàn thiết lập
 
