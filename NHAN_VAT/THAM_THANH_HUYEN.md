@@ -20,7 +20,12 @@
 - Dưới khóe mắt trái có một nốt ruồi, khiến vẻ ngoài tăng thêm nét yêu mị.
 - Dù dung mạo ôn nhu, khí thế uy áp tỏa ra vẫn khiến người xung quanh kính sợ và nể phục.
 
-## 3. Tính cách
+## 3. Sở thích và phương pháp tu luyện
+
+- **Sở thích:** Uống trà và chơi cờ.
+- **Đạo tu:** Thủy linh căn, kiếm tu.
+
+## 4. Tính cách
 
 - Trầm ổn, nội liễm và ưa sạch sẽ.
 - Thủ thân như ngọc.
@@ -28,17 +33,21 @@
 - Có tính chiếm hữu rất mạnh và hay ghen. Khi ghen, hắn không dễ nhượng bộ, kể cả trước người quen.
 - Bề ngoài ôn hòa nhưng vẫn giữ uy nghiêm và khí thế của một tông chủ có tu vi cao.
 
-## 4. Quan hệ với Tô Tiểu Uyển
+## 5. Quan hệ với Tô Tiểu Uyển
 
-- Có hảo cảm đặc biệt với nữ chính Tô Tiểu Uyển.
-- Mối quan hệ về sau phát triển thành **sư đồ luyến**; ban đầu, theo vai vế sư môn, Tô Tiểu Uyển phải gọi hắn là sư tôn.
-- Khi yêu, hắn có ham muốn gần gũi mãnh liệt và thường rất chủ động khi cảm xúc dâng cao.
-- Những cử chỉ thân mật như người yêu cắn môi dưới, hôn lên cổ hoặc chạm vào cơ bụng có thể khiến hắn khó giữ bình tĩnh.
-- Trong diễn biến tình cảm, cần giữ đồng thời hai mặt: sự dịu dàng, chiều chuộng dành cho người yêu và tính chiếm hữu, ghen tuông mạnh mẽ của hắn.
+- Lần đầu gặp Tô Tiểu Uyển sau khi nàng xuyên vào thân thể Vô Ưu, Thẩm Thanh Huyền đã nhận ra hiện tượng **Song Linh Cộng Sinh**.
+- Hắn biết linh hồn bên trong thân thể này hoàn toàn khác với Vô Ưu ban đầu.
+- Dù nhận ra sự khác biệt ấy, hắn không phán xét Tô Tiểu Uyển; trái lại, hắn che chở nàng.
+- Đối với nàng, hắn luôn dành một sự nhẫn nại và nhường nhịn đặc biệt.
+- Ngay từ lần đầu gặp, hắn đã thấy nàng thuận mắt; sự yêu thích dần sâu sắc hơn bởi vẻ đẹp, tính cách và tâm hồn của nàng.
+- Tình cảm ấy theo thời gian phát triển thành tình yêu sâu đậm, sống chết không rời.
+- Về sau, Thẩm Thanh Huyền sẽ kết duyên với Tô Tiểu Uyển.
+- Mối quan hệ về sau phát triển thành **sư đồ luyến**; theo vai vế sư môn, Tô Tiểu Uyển gọi hắn là sư tôn.
+- Khi yêu, hắn thể hiện tình cảm mạnh mẽ và chủ động, nhưng vẫn cần giữ đúng tính cách dịu dàng, chiều chuộng và chiếm hữu đã được xác lập.
 
-## 5. Nguyên tắc bảo toàn thiết lập
+## 6. Nguyên tắc bảo toàn thiết lập
 
 - Không thay đổi tuổi, chiều cao, ngoại hình, cảnh giới, chức vị hoặc quan hệ sư môn đã xác lập.
-- Thẩm Thanh Huyền là sư phụ của Diệp Vô Trần; không nhầm quan hệ này với việc hắn trực tiếp thu Tô Tiểu Uyển làm đồ đệ ở thời điểm ban đầu khi chi tiết đó chưa được xác lập.
-- Giữ mạch phát triển tình cảm với Tô Tiểu Uyển theo hướng sư đồ luyến đã được người dùng xác nhận.
+- Thẩm Thanh Huyền là sư phụ của Diệp Vô Trần; không tự ý khẳng định hắn trực tiếp thu Tô Tiểu Uyển làm đồ đệ ở thời điểm ban đầu khi chi tiết đó chưa được xác lập.
+- Giữ mạch phát triển tình cảm với Tô Tiểu Uyển theo hướng sư đồ luyến và kết duyên về sau.
 - Những chi tiết chưa được người dùng xác nhận cần để mở, không tự ý biến thành canon.
