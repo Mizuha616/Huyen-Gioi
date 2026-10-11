@@ -61,3 +61,44 @@ Nằm ở phía tây Huyễn Giới. Khu vực giáp U Linh Vực và Loạn Tá
 - Không gọi người đứng đầu Cầu Tiên Thành là vua; danh xưng chính xác là Cầu Tiên Thành Thánh Tử.
 - Giữ nguyên vị trí tiếp giáp và đặc điểm của Vô Ưu Cốc, U Linh Vực, Loạn Táng Cương như tài liệu này.
 - Những chi tiết chưa được xác lập rõ cần được hỏi và chốt trước khi bổ sung vào canon.
+
+
+## 6. Hệ thống cảnh giới tu vi
+
+Các cảnh giới tu vi tại Huyễn Giới, theo thứ tự từ thấp đến cao:
+
+### Luyện Khí kỳ — tầng 1 đến tầng 10
+- Là cấp bậc tu tiên thấp nhất.
+- Người tu luyện bắt đầu làm quen với linh khí, học cách ngưng luyện linh khí và tìm ra hệ chủ của linh khí.
+
+### Trúc Cơ kỳ — tầng 1 đến tầng 10
+- Linh khí trong cơ thể ổn định hơn.
+- Khi đi lịch luyện, tu tiên giả đã có thể tu được thiên tiên khí vận.
+
+### Kim Đan kỳ — tầng 1 đến tầng 10
+- Cơ thể tu tiên giả có thể ngưng tụ linh đan.
+- Có thể dẫn nhập linh khí từ đất trời; sức mạnh tăng lên đáng kể.
+
+### Nguyên Anh kỳ — tầng 1 đến tầng 10
+- Tu luyện ra bản nguyên chi lực.
+- Khi thân thể tử vong, tu tiên giả có thể tái tạo nhục thân từ bản nguyên này.
+- Cũng có thể kích phát bản nguyên để thi triển chiêu thức đồng quy vu tận.
+
+### Hóa Thần kỳ — tầng 1 đến tầng 10
+- Pháp thuật đã đạt đến trình độ cao thâm.
+- Tu tiên giả ở cảnh giới này có thể được xem như thần ở nhân giới.
+
+### Đại Thừa kỳ — tầng 1 đến tầng 10
+- Tu vi đạt đến mức viên mãn.
+- Đây là cảnh giới gần với thượng tiên nhất.
+
+### Đăng Tiên kỳ
+- Là cảnh giới cuối cùng trong hệ thống tu vi của Huyễn Giới.
+- Tu tiên giả ở cảnh giới này thậm chí có thể dò xét Thiên Đạo và xuyên qua thời không.
+- Theo thiết lập hiện tại, chưa có ai ở Huyễn Giới được xác nhận đã đạt đến cảnh giới này.
+
+## 7. Nguyên tắc bảo toàn hệ thống tu vi
+
+- Luyện Khí, Trúc Cơ, Kim Đan, Nguyên Anh, Hóa Thần và Đại Thừa đều chia thành tầng 1 đến tầng 10.
+- Đăng Tiên kỳ không được tự ý chia tầng khi chưa có thiết lập bổ sung.
+- Giữ đúng thứ tự cảnh giới và đặc điểm đã được xác lập; không tự thêm cảnh giới mới hoặc thay đổi năng lực của từng cảnh giới.
