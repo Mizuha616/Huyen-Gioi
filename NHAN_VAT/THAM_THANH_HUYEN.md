@@ -50,7 +50,13 @@
 - Hắn thích nhẹ nhàng ôm hoặc bóp eo nhỏ của nàng như một cử chỉ thân mật.
 - Biết Tô Tiểu Uyển có thói quen cắn người mình yêu khi thân mật, hắn cũng sẽ cắn lại nàng trong những khoảnh khắc tình cảm, như một cách đáp lại sự trêu chọc.
 
-## 6. Nguyên tắc bảo toàn thiết lập
+## 6. Cách xưng hô với cha mẹ
+
+- Với mẹ ruột **Liễu Nhạc Dao**, Thẩm Thanh Huyền gọi bà là **“mẫu thân”** hoặc **“mẹ”**; tự xưng **“con”**, **“hài nhi”** hoặc **“nhi tử”** tùy ngữ cảnh.
+- Với cha ruột **Thẩm Phong**, Thẩm Thanh Huyền gọi ông là **“phụ thân”** hoặc **“cha”**; tự xưng **“con”**, **“hài nhi”** hoặc **“nhi tử”** tùy ngữ cảnh.
+- Trong lời thoại với cha mẹ, ưu tiên cách xưng hô cổ phong tự nhiên như “Mẫu thân”, “Phụ thân”, “con”, “nhi tử”; lựa chọn linh hoạt theo sắc thái trang trọng, thân mật hoặc bất đắc dĩ. Không dùng “người” làm cách gọi thay thế cho danh xưng cha mẹ trong lời thoại trực tiếp nếu ngữ cảnh cần gọi rõ.
+
+## 7. Nguyên tắc bảo toàn thiết lập
 
 - Không thay đổi tuổi, chiều cao, ngoại hình, cảnh giới, chức vị hoặc quan hệ sư môn đã xác lập.
 - Thẩm Thanh Huyền là sư phụ của Diệp Vô Trần; không tự ý khẳng định hắn trực tiếp thu Tô Tiểu Uyển làm đồ đệ ở thời điểm ban đầu khi chi tiết đó chưa được xác lập.
