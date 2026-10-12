@@ -12,7 +12,7 @@
 ### Thân phận ban đầu
 
 - **Giới tính:** Nữ.
-- **Tuổi khi Tô Tiểu Uyển xuyên đến:** 16 tuổi.
+- **Tuổi khi Tô Tiểu Uyển xuyên đến:** 18 tuổi.
 - **Tông môn:** Thanh Vân Môn.
 - **Sư phụ:** Diệp Vô Trần, người dẫn Vô Ưu về tông môn.
 - **Địa vị:** Đệ tử ngoại môn mới nhập môn.
