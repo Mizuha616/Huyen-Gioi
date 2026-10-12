@@ -67,3 +67,11 @@ Vì Tô Tiểu Uyển đến từ một dị giới khác, nàng được Thiên
 - **Khi chỉ có hai người ở riêng:** Tô Tiểu Uyển xưng **“ta”**, gọi Thẩm Thanh Huyền là **“chàng”**. Thẩm Thanh Huyền có thể dùng cách xưng hô thân mật phù hợp.
 - **Khi có người thứ ba trở lên trong ngữ cảnh:** Tô Tiểu Uyển xưng **“con”**, gọi Thẩm Thanh Huyền là **“sư tôn”**.
 - Giữ nhất quán cách xưng hô trong cùng một cảnh; không trộn “ta/chàng” với “con/sư tôn” nếu bối cảnh không thay đổi.
+
+## 6. Quy tắc danh nghĩa khi kể chuyện: Tô Tiểu Uyển và Vô Ưu là hai người khác nhau
+
+- **Người đang sống, suy nghĩ, yêu Thẩm Thanh Huyền, nói chuyện và hành động trong mạch truyện hiện tại là Tô Tiểu Uyển**, linh hồn từ thế giới hiện đại xuyên vào thân xác Vô Ưu. Khi lời kể miêu tả nội tâm, cảm xúc, suy nghĩ, phản ứng hoặc hành động của nhân vật chính hiện tại, phải gọi nàng là **Tô Tiểu Uyển** để giữ rõ danh nghĩa.
+- **Vô Ưu là chủ nhân bản địa của thân xác**, không phải tên thật của linh hồn đang điều khiển thân thể. Thần thức của Vô Ưu thật hiện đang ngủ say, chỉ còn một tia thần thức trong trạng thái cộng sinh; về sau nàng sẽ thức tỉnh và xảy ra xung đột linh hồn với Tô Tiểu Uyển. Đây là hai chủ thể riêng biệt, không được gộp làm một.
+- Vì những nhân vật khác chưa biết bí mật này, họ vẫn gọi Tô Tiểu Uyển bằng tên **“Vô Ưu”** trong lời thoại và cách xưng hô trong thế giới truyện. Đó là tên họ biết và dùng cho thân xác hiện tại, không có nghĩa người kể chuyện được phép đồng nhất Tô Tiểu Uyển với Vô Ưu thật.
+- Trong lời kể, ưu tiên viết “Tô Tiểu Uyển đỏ mặt”, “Tô Tiểu Uyển ngẩng đầu”, “nàng nghĩ thầm…” khi chủ thể là linh hồn đang điều khiển. Trong lời thoại của Thẩm Thanh Huyền và những người chưa biết sự thật, tiếp tục dùng “Vô Ưu” như cách họ gọi nàng.
+- Không tự ý tiết lộ bí mật này cho Thẩm Thanh Huyền hoặc nhân vật khác trước khi Tô Tiểu Uyển chủ động thừa nhận. Khi Vô Ưu thật thức tỉnh ở mạch truyện tương lai, phải phân biệt rõ lời nói, ý thức, động cơ và hành động của hai linh hồn.
