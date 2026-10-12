@@ -6,6 +6,7 @@
 - **Chiều cao:** 1,84 m.
 - **Tu vi:** Đại Thừa Kỳ tầng 6.
 - **Võ công:** Kiếm lôi.
+- **Bản nguyên:** Một con chó sói bạc.
 
 ## Ngoại hình
 - Tóc trắng, thường buộc thấp.
@@ -22,6 +23,7 @@
 - Dù mưu sâu, hắn vẫn rất công bằng và biết giữ chữ tín.
 - Bá đạo, chiếm hữu, háo thắng, kiêu ngạo, thường không để ai vào mắt.
 - Khi yêu vẫn giữ vững lập trường, hơi gia trưởng; đã quyết điều gì thì nói một là một, hai là hai.
+- Tuy gia trưởng và bá đạo, khi yêu hắn lại là kiểu **liếm cẩu số một**: hết lòng theo đuổi, chiều chuộng và đặt người mình yêu lên hàng đầu, sẵn sàng hạ mình vì nàng mà vẫn giữ nét kiêu ngạo trước người ngoài.
 
 ## Tuyến tình cảm
 - Lần đầu gặp nữ chính, hắn suýt nhầm nàng với Thẩm Thanh Huyền vì thoáng cảm thấy bóng dáng sư huynh cũ, cho đến khi nhìn rõ khuôn mặt xa lạ.
