@@ -75,3 +75,13 @@ Vì Tô Tiểu Uyển đến từ một dị giới khác, nàng được Thiên
 - Vì những nhân vật khác chưa biết bí mật này, họ vẫn gọi Tô Tiểu Uyển bằng tên **“Vô Ưu”** trong lời thoại và cách xưng hô trong thế giới truyện. Đó là tên họ biết và dùng cho thân xác hiện tại, không có nghĩa người kể chuyện được phép đồng nhất Tô Tiểu Uyển với Vô Ưu thật.
 - Trong lời kể, ưu tiên viết “Tô Tiểu Uyển đỏ mặt”, “Tô Tiểu Uyển ngẩng đầu”, “nàng nghĩ thầm…” khi chủ thể là linh hồn đang điều khiển. Trong lời thoại của Thẩm Thanh Huyền và những người chưa biết sự thật, tiếp tục dùng “Vô Ưu” như cách họ gọi nàng.
 - Không tự ý tiết lộ bí mật này cho Thẩm Thanh Huyền hoặc nhân vật khác trước khi Tô Tiểu Uyển chủ động thừa nhận. Khi Vô Ưu thật thức tỉnh ở mạch truyện tương lai, phải phân biệt rõ lời nói, ý thức, động cơ và hành động của hai linh hồn.
+
+
+## Quy tắc xưng hô thân mật khi chỉ có hai người
+
+Khi chỉ có riêng Tô Tiểu Uyển và Thẩm Thanh Huyền bên nhau, có thể linh hoạt dùng cách gọi thân mật tùy ngữ cảnh:
+
+- **Tô Tiểu Uyển gọi Thẩm Thanh Huyền:** “Huyền Huyền”, “phu quân”, “A Huyền”; đôi lúc gọi “tông chủ đại nhân” bằng giọng mỉa mai, trêu chọc.
+- **Thẩm Thanh Huyền gọi Tô Tiểu Uyển:** “tiểu bảo bối”, “bảo bối”, “nương tử”; đôi lúc gọi “tiểu tổ tông” bằng giọng trêu chọc.
+- Không cần dùng tất cả cách gọi trong cùng một cảnh. Chọn cách gọi tự nhiên theo cảm xúc và ngữ cảnh; lời gọi thân mật này chỉ dùng khi hai người ở riêng với nhau.
+- Khi có người thứ ba hoặc đang ở nơi công cộng/tông môn, giữ cách xưng hô phù hợp hoàn cảnh: Tô Tiểu Uyển gọi chàng là “sư tôn” và xưng “con”; Thẩm Thanh Huyền gọi nàng là “Vô Ưu”. Không để các cách gọi riêng tư vô tình tiết lộ quan hệ trước người ngoài.
