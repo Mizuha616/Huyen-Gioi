@@ -1,7 +1,7 @@
 # UNO cùng Duy — Quy tắc tổ chức buổi chơi ngoài canon
 
 > **Trạng thái:** Thiết lập người sáng tạo Cửu Linh (Linh Linh/Linh Nhi) đã xác nhận  
-> **Phiên bản:** 1.1 · **Ngày:** 2026-10-13  
+> **Phiên bản:** 1.2 · **Ngày:** 2026-10-13  
 > **Loại:** Quy tắc điều hành trò chơi và giao lưu ngoài canon, không thuộc cốt truyện Huyễn Giới.  
 > **Áp dụng:** Khi Cửu Linh nói "chơi UNO", "rủ mọi người chơi UNO", hoặc lời mời tương tự, Duy **mặc định dùng thiết lập này**, trừ khi cậu muốn đổi.
 
@@ -30,12 +30,13 @@ Khi cậu không chỉ định danh sách khác, mời **6 người**:
 
 ## 3. Duy điều hành nhịp chơi
 
-1. **Không tự tua nhanh cả vòng NPC thành một bản tường thuật dài ngay sau mỗi câu của cậu.** Chừa nhịp dừng thật sự để cậu có thể chen lời, trả lời và tương tác.
-2. **Phân biệt lời thoại với hành động chơi.** Ví dụ, "Tử Hiên, ngươi đợi đấy!" là lời nói, **không** phải một lượt đánh; "Tớ đánh Đỏ 2" là một nước UNO.
-3. Khi cậu đánh một lá, cập nhật lượt/số bài đúng luật, để NPC đến lượt **tự chọn và tự đánh** khi diễn biến phù hợp; tường thuật đủ rõ nhưng không khiến cậu mất cơ hội trò chuyện với họ.
-4. Nếu cậu đang gọi/đối thoại với NPC, cho NPC đó đáp lại theo tính cách; **không buộc cậu hoàn tất lượt chơi trước mới được nói chuyện**.
-5. Khi cậu nói "dừng", "khoan", "đợi đã", "để tớ nói", "nghỉ chút", hoặc chuyển sang trò chuyện, **tạm dừng diễn biến đánh bài**; không rút hộ hoặc đánh hộ cậu.
-6. Không tự động bắt đầu ván mới, chia lại bài, nhảy cóc lượt hoặc tuyên bố thắng khi chưa có diễn biến hợp lệ.
+1. **Nhịp chơi nhanh vừa phải (ưu tiên mới nhất):** Mỗi lần Cửu Linh đánh bài, Duy cho các NPC tiếp tục đánh **liền mạch khoảng 3–5 nước hoặc đến khi quay về lượt Cửu Linh**, tùy thực tế; có thể tóm tắt các nước đơn giản trong 1–3 câu. **Không dừng sau từng lá NPC** để chờ xác nhận, nhưng cũng không tự tua nhiều vòng qua lượt Cửu Linh.
+2. **Vừa chat vừa chơi:** Giữ những màn đối đáp thú vị ngắn, tự nhiên ngay trong tiến trình. Cửu Linh được chen lời vào bất cứ lúc nào. Không biến mỗi nước NPC thành một trường đoạn nhập vai dài; dành dung lượng cho hành động và lời nói của cậu.
+3. **Phân biệt lời thoại với hành động chơi.** Ví dụ, "Tử Hiên, ngươi đợi đấy!" là lời nói, **không** phải một lượt đánh; "Tớ đánh Đỏ 2" là một nước UNO. Không bao giờ tự đánh/rút hộ Cửu Linh.
+4. Khi cậu trò chuyện đúng lúc đang là lượt NPC, NPC có thể **trả lời rồi tiếp tục những lượt NPC đang chờ** để ván không đứng yên quá lâu, trừ khi cậu yêu cầu chờ. Lời thoại của cậu **không** làm cậu mất lượt; nếu đến lượt Cửu Linh thì dừng và để cậu quyết định.
+5. Khi cậu nói "dừng", "khoan", "đợi đã", "để tớ nói", "nghỉ chút", hoặc muốn tạm dừng, **ngừng tiến trình đánh bài** để trò chuyện, không ép chơi tiếp.
+6. **Gọn và rõ:** sau mỗi đợt diễn biến, thông báo các lá NPC đã đánh/rút, cập nhật giao diện bàn bài (lá hiện tại, bài người sáng tạo, số lá từng người, ô chat), không tái diễn lại quá dài toàn bộ cuộc đấu khẩu.
+7. Không tự động bắt đầu ván mới, chia lại bài, nhảy cóc lượt hoặc tuyên bố thắng khi chưa có diễn biến hợp lệ.
 
 ## 4. Tự chủ, đối thoại và quan hệ NPC
 
@@ -81,11 +82,11 @@ Khi cậu không chỉ định danh sách khác, mời **6 người**:
 - **Một dòng nhập chat ngay trên giao diện UNO:** cung cấp ô nhập tự do và nút gửi nếu giao diện hỗ trợ; dùng được cho **mọi lời nói/nhập vai/trêu đùa/hỏi chuyện** và cả khai báo đánh bài, không chỉ lệnh chọn lá.
 - Nếu có thể, những quân/lá bài hợp lệ được **bấm để đánh**, nhưng **không bắt buộc dùng nút**. Vẫn ưu tiên người sáng tạo tự gõ nước đi bằng lời. Nếu cậu chọn lá Đổi màu, để cậu chọn màu.
 - Mỗi khi có nước bài được xử lý, **cập nhật lại toàn bộ giao diện rõ ràng** theo trạng thái mới. Không để cậu phải dò ngược nhiều tin nhắn để tìm bài mình còn.
-- **Trạng thái trò chuyện không tự thay đổi ván**; khi cậu chat, không tự nhảy lượt. Khi nền tảng không hỗ trợ ô chat trực tiếp trong bàn, nêu rõ và bảo đảm vẫn hiển thị các lá/số bài rõ ràng, cho phép chat qua ô nhập hội thoại bình thường.
+- **Trò chuyện không tiêu lượt của Cửu Linh**; khi cậu chat trong lượt NPC, NPC có thể đáp lời và tiếp tục các nước của chính họ theo nhịp nhanh đã thống nhất, nếu cậu không yêu cầu tạm dừng. Khi nền tảng không hỗ trợ ô chat trực tiếp trong bàn, nêu rõ và cho phép chat qua ô nhập hội thoại bình thường.
 - Giao diện làm nền cho buổi tụ họp, **không thay thế lời thoại và phản ứng tự nhiên của NPC**; phần chơi vẫn là buổi giao lưu ngoài canon.
 
 ---
 
-**Câu nhắc ngắn:** *"Chơi UNO với Linh Linh là một buổi tụ họp vừa chơi vừa tám chuyện; không cấm nói, không ép chọn bài, không tua quá nhanh, NPC tự quyết định, và mọi thứ ngoài canon."*
+**Câu nhắc ngắn:** *"UNO với Linh Linh là buổi vừa chơi vừa tám chuyện; NPC tự đánh liên tiếp 3–5 nước hoặc tới lượt Linh Linh, không lê thê, không bỏ qua lượt người sáng tạo; luôn có bàn bài rõ, ô chat và mọi thứ ngoài canon."*
 
 **Nguồn persona chính:** [DUY_PERSONA.md](DUY_PERSONA.md). Nếu nguyên tắc chung và quy tắc UNO xung đột, ưu tiên xác nhận mới nhất của Cửu Linh và đảm bảo không điều khiển thay cậu.
