@@ -1,7 +1,7 @@
 # UNO cùng Duy — Quy tắc tổ chức buổi chơi ngoài canon
 
 > **Trạng thái:** Thiết lập người sáng tạo Cửu Linh (Linh Linh/Linh Nhi) đã xác nhận  
-> **Phiên bản:** 1.0 · **Ngày:** 2026-10-13  
+> **Phiên bản:** 1.1 · **Ngày:** 2026-10-13  
 > **Loại:** Quy tắc điều hành trò chơi và giao lưu ngoài canon, không thuộc cốt truyện Huyễn Giới.  
 > **Áp dụng:** Khi Cửu Linh nói "chơi UNO", "rủ mọi người chơi UNO", hoặc lời mời tương tự, Duy **mặc định dùng thiết lập này**, trừ khi cậu muốn đổi.
 
@@ -70,6 +70,19 @@ Khi cậu không chỉ định danh sách khác, mời **6 người**:
 **Khi tiếp tục ván đang dang dở:** Duy dùng **trạng thái đã xác lập trong chính cuộc trò chuyện hiện tại** (bài, lượt, người chơi). Không nhầm quy tắc mặc định với trạng thái một ván cụ thể. Nếu đang thiếu dữ liệu do chuyển sang phiên khác, giải thích ngắn và cùng cậu phục hồi ván hoặc bắt đầu mới.
 
 **Sau mỗi lần tương tác:** Ưu tiên câu chuyện vui và phản ứng tự nhiên của nhân vật. Chỉ cập nhật lượt khi có hành động chơi thực sự.
+
+## 8. Giao diện bàn chơi UNO mặc định — bắt buộc khi khả dụng
+
+**Bảng UNO phải cho người sáng tạo thấy ngay trạng thái bài và phải có chỗ trò chuyện.** Không được chỉ kể diễn biến bằng lời khiến cậu không nhìn thấy các lá bài.
+
+- **Bài trên tay Cửu Linh:** hiển thị **đủ tất cả lá**, có **màu, số hoặc ký hiệu hành động (+2, Đảo chiều, Cấm lượt, Đổi màu)** đủ lớn và rõ; đồng thời ghi tên lá dễ hiểu. Số lượng phải trùng số lá hiển thị và được cập nhật sau mỗi lượt.
+- **Bài trên bàn:** hiển thị lá đánh gần nhất và màu đang hiệu lực; chỉ rõ hiện đến lượt ai.
+- **Đếm bài của sáu người:** hiển thị số lá còn trên tay từng người (Cửu Linh, Tô Tô, Tử Hiên, Y Nguyệt, Thẩm Thanh Huyền, Duy). Giữ bí mật mặt bài NPC.
+- **Một dòng nhập chat ngay trên giao diện UNO:** cung cấp ô nhập tự do và nút gửi nếu giao diện hỗ trợ; dùng được cho **mọi lời nói/nhập vai/trêu đùa/hỏi chuyện** và cả khai báo đánh bài, không chỉ lệnh chọn lá.
+- Nếu có thể, những quân/lá bài hợp lệ được **bấm để đánh**, nhưng **không bắt buộc dùng nút**. Vẫn ưu tiên người sáng tạo tự gõ nước đi bằng lời. Nếu cậu chọn lá Đổi màu, để cậu chọn màu.
+- Mỗi khi có nước bài được xử lý, **cập nhật lại toàn bộ giao diện rõ ràng** theo trạng thái mới. Không để cậu phải dò ngược nhiều tin nhắn để tìm bài mình còn.
+- **Trạng thái trò chuyện không tự thay đổi ván**; khi cậu chat, không tự nhảy lượt. Khi nền tảng không hỗ trợ ô chat trực tiếp trong bàn, nêu rõ và bảo đảm vẫn hiển thị các lá/số bài rõ ràng, cho phép chat qua ô nhập hội thoại bình thường.
+- Giao diện làm nền cho buổi tụ họp, **không thay thế lời thoại và phản ứng tự nhiên của NPC**; phần chơi vẫn là buổi giao lưu ngoài canon.
 
 ---
 
