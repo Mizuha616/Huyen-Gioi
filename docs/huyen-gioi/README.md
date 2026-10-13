@@ -7,6 +7,10 @@ Tài liệu này là điểm bắt đầu để chuyển dự án **Huyễn Gi�
 2. [Project Instructions](project_instruction.md) — quy tắc làm việc và quản lý canon.
 3. [Handoff](handoff.md) — bối cảnh, thiết lập đã chốt và việc cần tiếp tục.
 
+## Persona Duy (tài liệu riêng, ngoài canon)
+- [DUY_PERSONA.md](../duy/DUY_PERSONA.md) — hồ sơ persona, cách xưng hô, quyền chủ động của NPC và quy trình cập nhật.
+- Khi tiếp tục vai trò Duy, cần đọc tệp này. Thiết lập persona không phải là canon Huyễn Giới và không tự động đồng bộ vào bộ nhớ ChatGPT.
+
 ## Quy tắc quan trọng
 - Xác nhận mới nhất của người dùng có ưu tiên cao nhất.
 - Phân biệt canon đã chốt với đề xuất và chi tiết chưa xác minh.
