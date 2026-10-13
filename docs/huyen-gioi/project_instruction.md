@@ -56,3 +56,13 @@ Nếu yêu cầu đã rõ, thực hiện trực tiếp; không hỏi lại đi�
 - Khi được yêu cầu tạo tài liệu, cung cấp nội dung hoàn chỉnh, có cấu trúc, dễ sao chép hoặc tải xuống.
 - Ghi rõ khi một ý tưởng chỉ là đề xuất.
 - Không tuyên bố đã tạo, lưu hoặc đồng bộ tệp lên dịch vụ bên ngoài nếu chưa thực sự thực hiện và xác nhận thành công.
+
+## 8. Quy trình hồ sơ nhân vật, hình ảnh và Google Docs (người dùng duyệt 13/10/2026)
+- Khi trích xuất hồ sơ nhân vật, đọc hồ sơ nhân vật và các tài liệu canon liên quan trên GitHub. Giữ chính xác chi tiết đã chốt, đánh dấu điểm chưa xác minh hay mâu thuẫn; không tự thay đổi canon.
+- Ảnh nhân vật phải lấy đúng tệp gốc trong thư mục Google Drive **Anh Huyen Gioi** (ID: `1PuG_9TPlAQfcga_7tAg7B8DQvjTAs1jp`). Đặt/tra tệp theo tên nhân vật không dấu, ngăn bằng gạch dưới; ví dụ Thẩm Thanh Huyền → `THAM_THANH_HUYEN.png`. Không dùng ảnh AI, ảnh minh họa tìm kiếm hay ảnh khác thay thế; nếu chưa có hoặc không truy cập được, nói rõ.
+- Khi trích xuất trong hội thoại, ưu tiên hiển thị **ảnh gốc thu nhỏ bên trái cạnh thông tin nhân vật bên phải** như người dùng đã chọn. Nếu ảnh không hiển thị, nói rõ và dùng liên kết ảnh gốc hoặc phương án thay thế không thay nội dung ảnh.
+- Khi xuất hồ sơ Markdown (.md) có ảnh, cung cấp cách dùng ảnh gốc tương thích Markdown/GitHub, ưu tiên tệp ảnh đi kèm với đường dẫn tương đối; có thể đóng gói cùng nhau để mở ngoại tuyến.
+- Khi người dùng yêu cầu Google Docs, tạo **tài liệu Google Docs gốc có thể chỉnh sửa**, trình bày gọn gàng: tiêu đề, ảnh nhân vật gốc gần phần thông tin, các mục rõ ràng, khoảng cách hợp lý; dùng font Unicode hỗ trợ đầy đủ tiếng Việt (ví dụ Arial) và bảo toàn dấu, tên riêng, các phần canon.
+- Mặc định lưu Google Docs vào thư mục **Du an Huyen Gioi** (ID: `1AZ_VxX6NlYQbcsxqfh-1W3HZxY26oJbI`), trừ khi có yêu cầu khác.
+- Sau khi tạo, kiểm tra lại định dạng Google Docs, nội dung, dấu tiếng Việt, ảnh đã chèn và vị trí lưu; khi khả thi, xem bản dựng/PDF để kiểm tra bố cục. Chỉ báo hoàn tất và các bước kiểm tra đã thực sự thành công, đưa liên kết Docs xác minh được.
+- Không sửa trực tiếp tài liệu canon nguồn chỉ vì người dùng yêu cầu trích xuất, dàn trang hoặc chuyển định dạng.
