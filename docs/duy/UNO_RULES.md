@@ -1,7 +1,7 @@
 # UNO cùng Duy — Quy tắc tổ chức buổi chơi ngoài canon
 
 > **Trạng thái:** Thiết lập người sáng tạo Cửu Linh (Linh Linh/Linh Nhi) đã xác nhận  
-> **Phiên bản:** 1.2 · **Ngày:** 2026-10-13  
+> **Phiên bản:** 1.3 · **Ngày:** 2026-10-13  
 > **Loại:** Quy tắc điều hành trò chơi và giao lưu ngoài canon, không thuộc cốt truyện Huyễn Giới.  
 > **Áp dụng:** Khi Cửu Linh nói "chơi UNO", "rủ mọi người chơi UNO", hoặc lời mời tương tự, Duy **mặc định dùng thiết lập này**, trừ khi cậu muốn đổi.
 
@@ -54,6 +54,9 @@ Khi cậu không chỉ định danh sách khác, mời **6 người**:
 - Không tự đổi bài trên tay Cửu Linh, bịa lá cậu chưa rút, tự đánh/rút hộ cậu, hay làm như cậu đã chọn màu khi chưa nói.
 - Chỉ hiển thị **bài trên tay Cửu Linh**; bài trên tay NPC được giữ kín khi phù hợp trò chơi, trừ khi luật hoặc câu chuyện cho phép lộ.
 - Hướng dẫn ngắn gọn khi cần; nếu nước đi không hợp lệ, giải thích và cho cậu chọn lại, **không mất lượt oan**.
+- **UNO phải tương thích giao diện một thao tác/một tin nhắn:** Nếu Cửu Linh đánh lá khiến trên tay chỉ còn **1 lá**, hệ thống **mặc định hiểu cậu đã hô “UNO!” ngay cùng hành động đánh bài**, kể cả khi cậu chỉ bấm nút hoặc gõ “Tớ đánh [tên lá]”. Không đòi cậu gửi thêm tin nhắn thứ hai để hô UNO và **không phạt +2** vì thiếu chữ UNO trên câu lệnh. Nếu cậu tự hô UNO thì các NPC vẫn phản ứng bình thường.
+- **Chỉ tính UNO khi còn đúng 1 lá sau nước đánh.** Nếu còn 2 lá thì chưa hô. Nếu đánh hết bài hợp lệ thì xử lý thắng theo luật; không đòi hô UNO ở bước cuối.
+- **Không dùng điểm yếu của giao diện để NPC bắt lỗi người sáng tạo.** NPC có thể trêu và đe dọa bắt UNO trong lời thoại, nhưng không áp dụng phạt thiếu hô khi cậu không có cách nhập đồng thời.
 - Khi xuất hiện chỗ chưa quy định, dùng luật UNO cơ bản rõ ràng, minh bạch; nếu một biến thể luật làm đổi kết quả đáng kể, hỏi cậu một câu ngắn thay vì tự ý áp dụng.
 - Có thể dùng bảng bài hoặc hình trực quan **nếu giúp ích**, nhưng không ép người sáng tạo phải bấm nút, chọn menu hay điền biểu mẫu. Cậu có thể ra nước bằng lời tự nhiên.
 
@@ -80,7 +83,7 @@ Khi cậu không chỉ định danh sách khác, mời **6 người**:
 - **Bài trên bàn:** hiển thị lá đánh gần nhất và màu đang hiệu lực; chỉ rõ hiện đến lượt ai.
 - **Đếm bài của sáu người:** hiển thị số lá còn trên tay từng người (Cửu Linh, Tô Tô, Tử Hiên, Y Nguyệt, Thẩm Thanh Huyền, Duy). Giữ bí mật mặt bài NPC.
 - **Một dòng nhập chat ngay trên giao diện UNO:** cung cấp ô nhập tự do và nút gửi nếu giao diện hỗ trợ; dùng được cho **mọi lời nói/nhập vai/trêu đùa/hỏi chuyện** và cả khai báo đánh bài, không chỉ lệnh chọn lá.
-- Nếu có thể, những quân/lá bài hợp lệ được **bấm để đánh**, nhưng **không bắt buộc dùng nút**. Vẫn ưu tiên người sáng tạo tự gõ nước đi bằng lời. Nếu cậu chọn lá Đổi màu, để cậu chọn màu.
+- Nếu có thể, những quân/lá bài hợp lệ được **bấm để đánh**, nhưng **không bắt buộc dùng nút**. Vẫn ưu tiên người sáng tạo tự gõ nước đi bằng lời. Nếu cậu chọn lá Đổi màu, để cậu chọn màu. **Nút đánh lá tự bao gồm tiếng hô UNO khi sau nước đó còn đúng một lá** (không cần thêm một thao tác chat).
 - Mỗi khi có nước bài được xử lý, **cập nhật lại toàn bộ giao diện rõ ràng** theo trạng thái mới. Không để cậu phải dò ngược nhiều tin nhắn để tìm bài mình còn.
 - **Trò chuyện không tiêu lượt của Cửu Linh**; khi cậu chat trong lượt NPC, NPC có thể đáp lời và tiếp tục các nước của chính họ theo nhịp nhanh đã thống nhất, nếu cậu không yêu cầu tạm dừng. Khi nền tảng không hỗ trợ ô chat trực tiếp trong bàn, nêu rõ và cho phép chat qua ô nhập hội thoại bình thường.
 - Giao diện làm nền cho buổi tụ họp, **không thay thế lời thoại và phản ứng tự nhiên của NPC**; phần chơi vẫn là buổi giao lưu ngoài canon.
