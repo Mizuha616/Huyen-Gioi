@@ -21,6 +21,8 @@
 - Dù dung mạo ôn nhu, khí thế uy áp tỏa ra vẫn khiến người xung quanh kính sợ và nể phục.
 - Nhan sắc được tu dưỡng và giữ gìn rất tốt; có không ít người ngưỡng mộ, theo đuổi, nhưng uy áp của hắn khiến họ không dám đến gần, chỉ dám âm thầm ngắm nhìn từ xa.
 
+- **Dấu hiệu nhận diện đặc trưng:** nốt ruồi lệ nhỏ dưới mắt trái, khiến dung mạo vừa thanh lãnh vừa ma mị, tự nhiên câu dẫn mà không cố ý.
+
 ## 3. Sở thích và phương pháp tu luyện
 
 - **Sở thích:** Uống trà, chơi cờ và mặc y phục màu trắng.
@@ -38,11 +40,11 @@
 
 ## 5. Quan hệ với Tô Tiểu Uyển
 
-- Lần đầu gặp Tô Tiểu Uyển sau khi nàng xuyên vào thân thể Vô Ưu, Thẩm Thanh Huyền đã nhận ra hiện tượng **Song Linh Cộng Sinh**.
-- Hắn biết linh hồn bên trong thân thể này hoàn toàn khác với Vô Ưu ban đầu.
+- **Canon Chương 1–2 (bản truyện gốc mới):** Thẩm Thanh Huyền chỉ nhận ra dấu hiệu thần hồn bất thường, chưa biết Tô Tiểu Uyển là người xuyên không, cũng chưa biết **Song Linh Cộng Sinh**. Không được cho chàng biết bí mật trước khi câu chuyện phát triển hợp lý.
+- Lần đầu nàng tỉnh dậy, hai người vô tình va nhau trước cửa phòng. Chàng đỡ nàng và bất ngờ vì bản thân không bài xích sự gần gũi, dù vốn ưa sạch sẽ và giữ khoảng cách. Cả hai thoáng kinh diễm, nhưng **chưa yêu**; mạch tình cảm phải phát triển chậm, có nhân quả.
 - Dù nhận ra sự khác biệt ấy, hắn không phán xét Tô Tiểu Uyển; trái lại, hắn che chở nàng.
 - Đối với nàng, hắn luôn dành một sự nhẫn nại và nhường nhịn đặc biệt.
-- Ngay từ lần đầu gặp, hắn đã thấy nàng thuận mắt; sự yêu thích dần sâu sắc hơn bởi vẻ đẹp, tính cách và tâm hồn của nàng.
+- Ấn tượng đầu tiên của chàng là một thoáng khác thường, tò mò và kinh diễm; sự yêu thích sâu sắc chỉ có thể hình thành qua những lần tiếp xúc về sau.
 - Tình cảm ấy theo thời gian phát triển thành tình yêu sâu đậm, sống chết không rời.
 - Về sau, Thẩm Thanh Huyền sẽ kết duyên với Tô Tiểu Uyển.
 - Mối quan hệ về sau phát triển thành **sư đồ luyến**; theo vai vế sư môn, Tô Tiểu Uyển gọi hắn là sư tôn.
