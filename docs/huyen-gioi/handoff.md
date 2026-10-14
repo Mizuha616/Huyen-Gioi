@@ -156,3 +156,17 @@ Người sáng tạo đã duyệt trọn Chương 6 làm mạch chính, tiếp n
 - Không tự quy định quốc gia xuất thân của Tô Tiểu Uyển hoặc gọi chữ viết thế giới cũ là chữ Hán. Dùng câu **“không hoàn toàn giống chữ ở thế giới cũ”** theo bản được duyệt.
 - Kết chương: hai người ở hai viện khác nhau, đều nhớ ánh mắt người kia; nàng quyết tâm tập trung học nhưng vẫn muốn nhìn hắn thêm. Tình cảm phát triển từ tốn, không nhảy cóc.
 - **Trạng thái:** Chương 1–6 đều là canon đã duyệt.
+
+
+## Canon cập nhật: Chương 7 — Một niệm hộ nàng (đã duyệt 2026-10-14)
+
+Người sáng tạo Cửu Linh đã duyệt toàn văn Chương 7 làm mạch chính, tiếp nối Chương 6. Tệp: [TRUYEN/QUYEN_1_SONG_LINH/CHUONG_07_MOT_NIEM_HO_NANG.md](../../TRUYEN/QUYEN_1_SONG_LINH/CHUONG_07_MOT_NIEM_HO_NANG.md). Google Docs: https://docs.google.com/document/d/1e3xyEarARsVp6Kz_pq-Xr4WuyCbY1vENIOE4Y9ATilw/edit?usp=drivesdk
+
+- Chương diễn ra một tháng sau khi Tô Tiểu Uyển chuyển đến Thanh Huyền Phong. Nàng đang ở Luyện Khí tầng một.
+- Cố Tuyết Dao bỏ dược vào bánh hoa quế, định dùng với Thẩm Thanh Huyền. Nàng bị đuổi khỏi thư phòng; Tô Tiểu Uyển ăn bánh và hôn mê suốt hai ngày.
+- Thẩm Thanh Huyền giải dược không xâm phạm nàng, chăm sóc suốt hai ngày. Hắn **tự xác nhận đã động lòng với Tô Tiểu Uyển**, đồng thời giữ ranh giới sư đồ, tiếp tục dạy dỗ, bảo vệ và để nàng tự lựa chọn con đường của mình.
+- Cố Tuyết Dao bị tước thân phận đệ tử nội môn, giam Tư Quá Nhai ba năm và phong bế linh lực; hết hạn trục xuất khỏi Thanh Vân Môn, cấm lên Thanh Huyền Phong.
+- Diệp Vô Trần là **đệ tử của Thẩm Thanh Huyền** và là **sư phụ nuôi của Đường Minh Hy, Vô Ưu, Cố Tuyết Dao**. Quan hệ này tiếp tục được giữ đúng bối phận.
+- Tên thật **Tiểu Uyển** chỉ dùng kín giữa nàng và Thẩm Thanh Huyền; trước mặt NPC khác là **Vô Ưu**. Lời nữ đệ tử phụ trách nội vụ trong mục IX: **"Dạ, Vô Ưu sư muội đã dùng rồi ạ."** NPC này không biết tên thật.
+- Toàn văn đã lưu đủ **9 mục I–IX**, giữ các đoạn hội thoại, dấu ngắt và câu kết. Bản Markdown giữ nguyên tệp toàn văn người sáng tạo cung cấp; bản Google Docs chỉ chuyển dấu Markdown thành định dạng tiêu đề và chữ nhấn.
+- **Trạng thái hiện tại:** Chương 1–7 đều là canon đã duyệt.
