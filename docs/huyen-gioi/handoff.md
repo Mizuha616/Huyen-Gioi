@@ -113,3 +113,16 @@ Trong cuộc trò chuyện riêng, Tô Tiểu Uyển nói tên thật và cho Th
 **Quy tắc xưng hô và bảo mật:** `docs/huyen-gioi/quy_tac_xung_ho_to_tieu_uyen.md`. Trước mặt NPC khác, chàng gọi nàng **Vô Ưu**. Khi riêng tư, chàng có thể gọi **Tô Tiểu Uyển** hoặc **Tiểu Uyển**; **Uyển Uyển** dành cho giai đoạn đủ thân thiết. NPC khác không tự động biết tên thật. Lỡ lời phải có hoàn cảnh và hệ quả hợp lý.
 
 **Tình trạng:** Chương 1, 2, 3 đều là truyện gốc đã duyệt. Các bản cũ mâu thuẫn với ba chương này bị thay thế.
+
+
+## Canon cập nhật: Chương 4 — Bóng người trong gương
+
+Người sáng tạo đã duyệt Chương 4 thành mạch truyện chính, tiếp nối Chương 3. Tệp: `TRUYEN/QUYEN_1_SONG_LINH/CHUONG_04_BONG_NGUOI_TRONG_GUONG.md`. Google Doc: https://docs.google.com/document/d/1UJ4Aj-NasRXu8ks3V1P0xqtWR0sSW_1_7a7601CEddc/edit
+
+- Thẩm Thanh Huyền dùng Thủy thuật tạo thủy kính cho Tô Tiểu Uyển. Khi nàng vô thức hỏi có đẹp không, chàng đáp ngay: **Đẹp**. Đây là rung động nhỏ chưa được chàng tự nhận thức.
+- Nàng vẫn ở phòng cũ thuộc Tu Trúc Đường, chưa chuyển đến cạnh sương phòng tông chủ.
+- Đường Minh Hy (21 tuổi, tóc và mắt hạt dẻ, tóc buộc cao, thân hình vạm vỡ, võ phục đỏ đen, Hỏa hệ kiếm tu) vốn hướng ngoại, nghĩa khí, có tình cảm lâu năm với Vô Ưu nhưng chưa tôn trọng giới hạn của nàng.
+- **Đường Minh Hy, Vô Ưu và Cố Tuyết Dao** từng là ba đứa trẻ ăn mày cùng sống qua đói rét, được **Diệp Vô Trần** đưa về Thanh Vân Môn; tình cảm và ký ức chung sâu hơn quan hệ thanh mai thông thường.
+- Khi Đường Minh Hy tiếp tục định chạm vào nàng dù bị từ chối, Thẩm Thanh Huyền xuất hiện. Tô Tô chủ động chạy đến nép sau lưng chàng, nắm góc áo chàng. Chàng vui kín đáo vì được nàng tin tưởng, đồng thời chấn nhiếp Minh Hy vì hành vi thất lễ và một chút ghen chưa tự nhận ra.
+- Đường Minh Hy có tình cảm thật và tổn thương khi nàng xa lạ, không được giản lược thành phản diện thuần túy. Chàng chưa biết thân phận Tô Tiểu Uyển; quy tắc giữ bí mật tên thật tiếp tục áp dụng.
+- **Trạng thái:** Chương 1–4 là canon đã duyệt.
