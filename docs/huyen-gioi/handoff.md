@@ -170,3 +170,23 @@ Người sáng tạo Cửu Linh đã duyệt toàn văn Chương 7 làm mạch c
 - Tên thật **Tiểu Uyển** chỉ dùng kín giữa nàng và Thẩm Thanh Huyền; trước mặt NPC khác là **Vô Ưu**. Lời nữ đệ tử phụ trách nội vụ trong mục IX: **"Dạ, Vô Ưu sư muội đã dùng rồi ạ."** NPC này không biết tên thật.
 - Toàn văn đã lưu đủ **9 mục I–IX**, giữ các đoạn hội thoại, dấu ngắt và câu kết. Bản Markdown giữ nguyên tệp toàn văn người sáng tạo cung cấp; bản Google Docs chỉ chuyển dấu Markdown thành định dạng tiêu đề và chữ nhấn.
 - **Trạng thái hiện tại:** Chương 1–7 đều là canon đã duyệt.
+
+
+## Canon cập nhật: Chương 8 — Lê hoa như cũ, lòng người đã khác (đã duyệt 2026-10-14)
+
+Người sáng tạo Cửu Linh đã duyệt **toàn văn không chỉnh sửa** Chương 8. Đây là phần tiếp nối trực tiếp dư âm biến cố Chương 7, có **6 mục I–VI**.
+
+- **GitHub:** [TRUYEN/QUYEN_1_SONG_LINH/CHUONG_08_LE_HOA_NHU_CU_LONG_NGUOI_DA_KHAC.md](../../TRUYEN/QUYEN_1_SONG_LINH/CHUONG_08_LE_HOA_NHU_CU_LONG_NGUOI_DA_KHAC.md)
+- **Google Docs:** https://docs.google.com/document/d/1DI3szNYu9tamFMjSqTE7pko3GfEo8I50xqv2HfO1Neo/edit
+- **Ghi chú xác nhận:** [docs/huyen-gioi/canon-chuong-08.md](canon-chuong-08.md)
+
+**Mạch truyện và thiết lập bắt buộc:**
+- Sau khi tỉnh lại từ hai ngày hôn mê, Tô Tiểu Uyển tiếp tục dưỡng thương. Thẩm Thanh Huyền quan tâm, theo dõi hồi phục và hạn chế nàng tu luyện quá sớm; hắn đã nhận ra bản thân động lòng từ Chương 7, nhưng **chưa thổ lộ và tiếp tục giữ giới hạn sư đồ**.
+- Đường Minh Hy chỉ ghé thăm ngắn, mang linh dược và lo lắng thật lòng; hắn không áp đặt hay ép Tiểu Uyển đáp lại tình cảm. Tình cảm và quá khứ của hắn với Vô Ưu cũ vẫn quan trọng cho các chương sau.
+- Tô Tiểu Uyển **ngồi yên dưới tán hoa lê ngắm hoa** và cảm nhận sự quý giá của việc còn sống sau sinh tử. Thẩm Thanh Huyền **vô tình đi ngang bắt gặp**, xao xuyến trước nụ cười an nhiên của nàng. Hai người cùng ngắm hoa.
+- Diệp Vô Trần kể sư tôn gần như không ngủ suốt hai ngày chăm nàng. Tiểu Uyển, vốn là nữ nhân từ thế giới hiện đại, có cảm tình với Thẩm và nhận ra đây có thể là tín hiệu quan tâm đặc biệt, nên **chủ động thăm dò** bằng tiếng gọi **“Huyền Huyền”** khi chỉ có hai người. Sau đó nàng chữa ngượng rằng ở thế giới cũ, bạn bè thân thiết thường gọi tên nhau như vậy. Thẩm hiểu thành nàng xem mình là người thân thiết đáng tin chứ chưa chắc yêu; hai người có tình cảm nhưng **hiểu nhầm thiện ý của nhau**, không phải vì thiếu thông minh.
+- Từng sợ bánh hoa quế sau vụ bị hạ dược, Tiểu Uyển cùng Thẩm **tự tay làm bánh**, để lấy lại một ký ức ngọt ngào. Sư tôn nếm bánh nàng làm; hắn **không ghét đồ ngọt**, chỉ không có thói quen nhận thức ăn từ nữ tử cố tình đem tới lấy lòng.
+- Cuối chương, Thẩm chủ động mời nàng đến **Tông Môn Luận Kiếm** với tư cách người quan sát, không giao đấu khi chưa hồi phục. Trước chính viện, dưới ánh nắng, hắn **tự nhiên chìa bàn tay xòe ra, lòng bàn tay hướng lên**. **Tô Tô cười rộ lên ngay lúc thấy hắn chìa tay, rồi mới vui vẻ chạy đến đặt tay vào lòng bàn tay hắn**. Hắn thoáng ngẩn ngơ và nói **“Nắm tay thôi, có cần vui thế không?”**; nàng vui vì **sư tôn chủ động nắm tay**. Hai người nắm tay ngự không đến quảng trường, lưu luyến đến khi phải buông trước lễ nghi công khai. Kết chương bằng **tiếng chuông thứ ba, Tông Môn Luận Kiếm chính thức khai hội**; trận luận kiếm thuộc Chương 9.
+- **Danh xưng:** Tên thật Tiểu Uyển chỉ dùng kín; trước mặt NPC vẫn là **Vô Ưu**. Diệp Vô Trần gọi Thẩm là **sư phụ**; Tô Tiểu Uyển gọi Thẩm là **sư tôn**.
+- **Quy tắc độ dài mới:** Các chương tiếp theo tối đa **30 trang A4**, ưu tiên **15–25 trang**, quy chiếu phông 12 pt, giãn dòng 1,5; tránh mô tả/tâm tư lặp lại.
+- **Trạng thái hiện tại: Chương 1–8 là canon đã được người sáng tạo duyệt.** Không tự sửa lại các chương đã chốt.
