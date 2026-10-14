@@ -7,9 +7,11 @@
 Huyễn Giới là dự án sáng tác tiên hiệp/huyền huyễn bằng tiếng Việt, tập trung vào thế giới tu luyện, bí mật linh hồn, quan hệ nhân vật phức tạp, quyền lực giữa các thế lực và những lựa chọn có hệ quả dài hạn. Dự án được phát triển theo hình thức cộng tác giữa người dùng và trợ lý AI: người dùng giữ quyền quyết định canon; trợ lý hỗ trợ triển khai, kiểm tra tính nhất quán và phát triển các cảnh truyện.
 
 ## Trục cốt truyện đã xác lập
-Một biến cố đột phá Trúc Cơ thất bại khiến Vô Ưu, nữ đệ tử ngoại môn Thanh Vân Môn, đứng trước cái chết. Tô Tiểu Uyển xuyên đến cứu mạng, dẫn đến trạng thái **Song Linh Cộng Sinh**: Vô Ưu rơi vào giấc ngủ sâu, còn Tô Tiểu Uyển tạm thời điều khiển thân xác. **Thiên Tiên Mị Cốt** tái tạo dung mạo. Bí mật này tạo ra hệ quả về thân phận, tu luyện, niềm tin và quan hệ với những người xung quanh.
+Tô Tiểu Uyển, nhân viên văn phòng 21 tuổi, gặp tai nạn trong đêm mưa khi cứu một chú chó nhỏ. Chấp niệm muốn sống của nàng giao hội với chấp niệm cầu sinh của Vô Ưu 18 tuổi. Biến cố đột phá Trúc Cơ thất bại khiến Vô Ưu, nữ đệ tử ngoại môn Thanh Vân Môn, đứng trước cái chết. Tô Tiểu Uyển xuyên đến cứu mạng, dẫn đến trạng thái **Song Linh Cộng Sinh**: Vô Ưu rơi vào giấc ngủ sâu, còn Tô Tiểu Uyển tạm thời điều khiển thân xác. **Thiên Tiên Mị Cốt** tái tạo dung mạo. Bí mật này tạo ra hệ quả về thân phận, tu luyện, niềm tin và quan hệ với những người xung quanh.
 
-Thẩm Thanh Huyền, tông chủ Thanh Vân Môn và kiếm tu Đại Thừa viên mãn, nhận ra linh hồn đang điều khiển thân xác không còn là Vô Ưu ban đầu. Chàng che chở Tô Tiểu Uyển; mạch tình cảm giữa hai người đã có lời tỏ tình được đáp lại. Các nhân vật như Diệp Vô Trần và Cửu Anh mở ra những xung đột, bí mật và quan hệ riêng trong thế giới rộng lớn hơn.
+Thẩm Thanh Huyền, tông chủ Thanh Vân Môn và kiếm tu Đại Thừa viên mãn, nhận thấy dấu hiệu thần hồn bất thường trong Chương 1 nhưng chưa biết bí mật xuyên không hay Song Linh Cộng Sinh. Những cảnh tỏ tình ở bản truyện cũ là tư liệu định hướng, chưa xảy ra trong mạch mới. Các nhân vật như Diệp Vô Trần và Cửu Anh mở ra những xung đột, bí mật và quan hệ riêng trong thế giới rộng lớn hơn.
+
+**Điểm bắt đầu canon mới:** [Chương 1 — Ta còn chưa muốn chết](../../TRUYEN/QUYEN_1_SONG_LINH/CHUONG_01_TA_CON_CHUA_MUON_CHET.md). Các biến cố sau chương này được xây dựng lại theo trình tự mới.
 
 ## Định hướng thế giới
 - Hệ thống tu luyện gồm Luyện Khí, Trúc Cơ, Kim Đan, Nguyên Anh, Hóa Thần, Đại Thừa và Đăng Tiên; mỗi cảnh giới từ Luyện Khí đến Đại Thừa có mười tầng. Đăng Tiên là cảnh giới cao nhất và chưa ai được xác nhận đạt.
