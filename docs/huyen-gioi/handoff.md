@@ -102,3 +102,14 @@ Trong Project mới:
 3. Khi lập hồ sơ nhân vật hoặc dòng thời gian, tách **canon đã chốt** khỏi **điểm chưa rõ**.
 4. Duy trì sổ quyết định canon: ngày, nội dung, tác động và chi tiết bị thay thế (nếu có).
 5. Với quyết định lớn chưa rõ, dùng khám phá có cấu trúc và chỉ hỏi tối đa 5–7 câu hỏi có tác động lớn nhất ban đầu.
+
+
+## Canon cập nhật ngày 2026-10-14: Chương 3
+
+Chương 3 **Người đến từ phương nào** đã được người sáng tạo duyệt thành truyện chính, nối tiếp Chương 2. Tệp truyện: `TRUYEN/QUYEN_1_SONG_LINH/CHUONG_03_NGUOI_DEN_TU_PHUONG_NAO.md`.
+
+Trong cuộc trò chuyện riêng, Tô Tiểu Uyển nói tên thật và cho Thẩm Thanh Huyền biết mình đến từ vị diện khác, đang bơ vơ, không có người quen. Chàng nhận ra nàng không phải Vô Ưu trước đây, quyết định giữ kín lời thú nhận và sắp xếp chỗ dung thân. Động cơ che chở ban đầu là trách nhiệm của tông chủ cùng lòng trắc ẩn, chưa phải tình yêu. Chàng chưa biết cơ chế Song Linh Cộng Sinh hoặc linh hồn Vô Ưu đang ngủ.
+
+**Quy tắc xưng hô và bảo mật:** `docs/huyen-gioi/quy_tac_xung_ho_to_tieu_uyen.md`. Trước mặt NPC khác, chàng gọi nàng **Vô Ưu**. Khi riêng tư, chàng có thể gọi **Tô Tiểu Uyển** hoặc **Tiểu Uyển**; **Uyển Uyển** dành cho giai đoạn đủ thân thiết. NPC khác không tự động biết tên thật. Lỡ lời phải có hoàn cảnh và hệ quả hợp lý.
+
+**Tình trạng:** Chương 1, 2, 3 đều là truyện gốc đã duyệt. Các bản cũ mâu thuẫn với ba chương này bị thay thế.
