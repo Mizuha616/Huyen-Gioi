@@ -5,7 +5,7 @@
 - **Vai trò:** Nữ chính; người dùng trực tiếp thủ vai.
 - **Giới tính, tuổi:** Nữ, 21 tuổi ở thế giới hiện đại.
 - **Thân phận trước khi xuyên không:** Nhân viên quèn tại một công ty.
-- **Biến cố:** Trên đường đi làm về, cô gặp tai nạn rồi xuyên vào thân xác Vô Ưu ở thế giới tu tiên.
+- **Biến cố canon mới:** Sau ngày tăng ca, trên đường về trong đêm mưa, Tô Tiểu Uyển cứu một chú chó nhỏ khỏi xe cộ và gặp tai nạn. Giữa đau đớn, nàng tiếc nuối mẹ, những ước mơ bình thường và bữa cơm tối chưa kịp ăn. Chấp niệm muốn sống của nàng rất mãnh liệt. Xem [Chương 1 — Ta còn chưa muốn chết](../TRUYEN/QUYEN_1_SONG_LINH/CHUONG_01_TA_CON_CHUA_MUON_CHET.md).
 
 ## 2. Vô Ưu — thân xác tại thế giới tu tiên
 
@@ -24,7 +24,7 @@
 
 Vô Ưu thất bại khi đột phá từ Luyện Khí kỳ lên Trúc Cơ kỳ. Thiên Đạo giáng phạt khiến thân thể nàng bị đánh tan tác, cháy đen và gần như mất mạng.
 
-Đúng lúc ấy, Tô Tiểu Uyển xuyên đến, giúp giữ lại mạng sống và một tia thần thức của Vô Ưu. Từ biến cố này hình thành trạng thái **Khí Vận Song Linh Cộng Sinh**.
+Cùng thời điểm, Vô Ưu cũng mang chấp niệm muốn sống. Hai ý niệm cầu sinh giao hội giữa hai thế giới; Tô Tiểu Uyển xuyên đến, giúp giữ lại mạng sống và một tia thần thức của Vô Ưu. Từ biến cố này hình thành trạng thái **Khí Vận Song Linh Cộng Sinh**.
 
 Do thần hồn còn suy yếu, Vô Ưu rơi vào ngủ say; Tô Tiểu Uyển tạm thời nắm quyền điều khiển thân xác. Vô Ưu vẫn còn một tia thần thức, không phải hoàn toàn biến mất.
 
@@ -57,12 +57,12 @@ Vì Tô Tiểu Uyển đến từ một dị giới khác, nàng được Thiên
 
 ## 4. Canon quan trọng: Thẩm Thanh Huyền chưa biết thân phận Tô Tiểu Uyển
 
-- Ở tiến trình hiện tại của câu chuyện, Thẩm Thanh Huyền **chưa biết Tô Tiểu Uyển là linh hồn người hiện đại xuyên không**, cũng chưa biết sự thật về Khí Vận Song Linh Cộng Sinh.
+- Tại cuối Chương 1 của mạch truyện mới, Thẩm Thanh Huyền **chưa biết Tô Tiểu Uyển là linh hồn người hiện đại xuyên không**, cũng chưa biết sự thật về Khí Vận Song Linh Cộng Sinh; chàng mới nhận ra dấu hiệu thần hồn bất thường.
 - Chàng chỉ biết và đối xử với nàng theo thân phận hiện tại là Vô Ưu/đệ tử của mình. Không được để chàng gọi nàng là “Tô Tiểu Uyển”, nhắc đến thân phận xuyên không, hoặc thể hiện rằng chàng đã biết sự thật.
 - Chỉ khi chính nàng chủ động nói ra, Thẩm Thanh Huyền mới có thể biết thân phận thật của nàng. Không tự ý để chàng suy đoán chính xác hoặc khám phá bí mật này trước thời điểm đó.
 - Không gọi nàng là “Uyển Uyển” như thể chàng đã biết tên Tô Tiểu Uyển. Trong lời thoại thân mật hiện tại, chàng có thể dùng những cách gọi tình cảm phù hợp như “Vô Ưu”, “tiểu nha đầu”, “bảo bối”; không dùng tên “Tô Tiểu Uyển” hay “Uyển Uyển” nếu chưa có tình tiết nàng tự tiết lộ và xác lập cách gọi ấy.
 
-## 5. Quy tắc xưng hô của Tô Tiểu Uyển
+## 5. Quy tắc xưng hô của Tô Tiểu Uyển (áp dụng ở giai đoạn quan hệ tương ứng, chưa phải Chương 1)
 
 - **Khi chỉ có hai người ở riêng:** Tô Tiểu Uyển xưng **“ta”**, gọi Thẩm Thanh Huyền là **“chàng”**. Thẩm Thanh Huyền có thể dùng cách xưng hô thân mật phù hợp.
 - **Khi có người thứ ba trở lên trong ngữ cảnh:** Tô Tiểu Uyển xưng **“con”**, gọi Thẩm Thanh Huyền là **“sư tôn”**.
@@ -77,7 +77,7 @@ Vì Tô Tiểu Uyển đến từ một dị giới khác, nàng được Thiên
 - Không tự ý tiết lộ bí mật này cho Thẩm Thanh Huyền hoặc nhân vật khác trước khi Tô Tiểu Uyển chủ động thừa nhận. Khi Vô Ưu thật thức tỉnh ở mạch truyện tương lai, phải phân biệt rõ lời nói, ý thức, động cơ và hành động của hai linh hồn.
 
 
-## Quy tắc xưng hô thân mật khi chỉ có hai người
+## Quy tắc xưng hô thân mật khi chỉ có hai người (tư liệu giai đoạn tương lai)
 
 Khi chỉ có riêng Tô Tiểu Uyển và Thẩm Thanh Huyền bên nhau, có thể linh hoạt dùng cách gọi thân mật tùy ngữ cảnh:
 
