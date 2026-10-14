@@ -31,9 +31,10 @@ Thứ tự cảnh giới:
 ## 4. Thanh Vân Môn và nhân vật trung tâm
 
 ### Tô Tiểu Uyển / Vô Ưu
-- Vô Ưu là nữ, 16 tuổi tại thời điểm Tô Tiểu Uyển xuyên đến; vốn là đệ tử ngoại môn Thanh Vân Môn, do Diệp Vô Trần dẫn về.
-- Khi đột phá Trúc Cơ thất bại, Vô Ưu bị Thiên Đạo đánh đến mức thân thể cháy đen, nguy cơ tử vong.
-- Tô Tiểu Uyển xuyên đến cứu mạng, tạo thành tình trạng **Song Linh Cộng Sinh**.
+- Vô Ưu là nữ, 18 tuổi tại thời điểm Tô Tiểu Uyển xuyên đến; vốn là đệ tử ngoại môn Thanh Vân Môn, do Diệp Vô Trần dẫn về.
+- Tô Tiểu Uyển (21 tuổi), nhân viên văn phòng chật vật mưu sinh, gặp tai nạn trong đêm mưa khi cứu một chú chó nhỏ; ý niệm cầu sinh của nàng vô cùng mãnh liệt.
+- Vô Ưu (18 tuổi) thất bại khi đột phá Trúc Cơ, bị thiên lôi đánh đến mức thân thể cháy đen, nguy cơ tử vong; nàng cũng có chấp niệm muốn sống.
+- Hai ý niệm cầu sinh gặp nhau qua ranh giới thế giới, Tô Tiểu Uyển xuyên đến, tạo thành tình trạng **Khí Vận Song Linh Cộng Sinh**. Đây là nền tảng mở đầu canon mới theo Chương 1.
 - Vô Ưu ngủ say; Tô Tiểu Uyển tạm thời điều khiển thân xác.
 - **Thiên Tiên Mị Cốt** tái tạo dung mạo.
 - Trang phục từng được cân nhắc giữa xanh lục pastel và lam nhạt; khi cần chốt cho thiết kế mới, theo lựa chọn mới nhất của người dùng trong ngữ cảnh trực tiếp.
@@ -41,8 +42,8 @@ Thứ tự cảnh giới:
 ### Thẩm Thanh Huyền
 - Tông chủ Thanh Vân Môn; khoảng 1.000 tuổi / hơn ngàn năm theo những đoạn mô tả đã dùng.
 - Đại Thừa viên mãn; thủy linh căn, kiếm tu; tóc bạc, mắt xanh trong tạo hình đã được chấp nhận.
-- Nhận ra linh hồn điều khiển thân xác không còn là Vô Ưu ban đầu và biết tình trạng Song Linh Cộng Sinh; chàng che chở Tô Tiểu Uyển.
-- Mạch tình cảm với Tô Tiểu Uyển đã có cảnh tỏ tình được chấp nhận: chàng bày tỏ tình yêu, nàng đáp lại và chủ động hôn chàng. Hướng phát triển đã xác lập là hai người có tình cảm và tương lai kết duyên, trừ khi người dùng sửa canon.
+- Ở Chương 1, nhận ra dấu hiệu thần hồn bất thường nhưng **chưa kết luận** về hai linh hồn hay thân phận xuyên không; chàng yêu cầu phong tỏa tin tức để bảo vệ thiếu nữ. Mọi nhận biết sâu hơn phải phát triển theo mạch truyện mới.
+- Những cảnh tình cảm và tỏ tình thuộc tiến trình cũ là tư liệu tham khảo cho tuyến tình cảm tương lai, **chưa xảy ra** ở điểm bắt đầu mới.
 - Không mặc định chàng là sư phụ trực tiếp của Tô Tiểu Uyển ngay từ đầu nếu chưa được xác nhận cho tình huống cụ thể.
 
 ### Diệp Vô Trần
@@ -84,7 +85,12 @@ Thứ tự cảnh giới:
 - Câu chuyện về hai kiếp/hai nhân dạng tiếp cận Thẩm sư phụ trên iMeLy là tâm sự ngoài lề, không phải canon.
 - Không nhập bất kỳ nhân vật, quan hệ hay sự kiện nào chỉ xuất hiện trong đoạn meta vào truyện chính.
 
-## 8. Trạng thái và việc tiếp theo
+## 8. Mốc khởi đầu truyện chính mới (chốt 2026-10-14)
+- **Chương 1: Ta còn chưa muốn chết** là bản mở đầu canon mới, lưu tại [TRUYEN/QUYEN_1_SONG_LINH/CHUONG_01_TA_CON_CHUA_MUON_CHET.md](../../TRUYEN/QUYEN_1_SONG_LINH/CHUONG_01_TA_CON_CHUA_MUON_CHET.md).
+- Trình tự: tăng ca, đêm mưa, cứu chó, tai nạn, chấp niệm cầu sinh; Vô Ưu thất bại Trúc Cơ, hai ý niệm cầu sinh giao hội, thân xác tái tạo, Diệp Vô Trần cứu giúp, Thẩm Thanh Huyền đến kiểm tra, Tô Tiểu Uyển chưa tỉnh.
+- Mạch truyện cũ không còn là tiến trình đã xảy ra của phiên bản mới; giữ những thiết lập thế giới/nhân vật không mâu thuẫn, còn các cảnh sau Chương 1 cần được viết lại.
+
+## 9. Trạng thái và việc tiếp theo
 Dự án đã có nền tảng về cảnh giới, Thanh Vân Môn, Song Linh Cộng Sinh, quan hệ nhân vật chính và một số thiết lập về Cửu Anh/Cầu Tiên Thành. Điều này không có nghĩa toàn bộ cốt truyện đã hoàn chỉnh.
 
 Trong Project mới:
