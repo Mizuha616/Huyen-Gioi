@@ -126,3 +126,17 @@ Người sáng tạo đã duyệt Chương 4 thành mạch truyện chính, ti�
 - Khi Đường Minh Hy tiếp tục định chạm vào nàng dù bị từ chối, Thẩm Thanh Huyền xuất hiện. Tô Tô chủ động chạy đến nép sau lưng chàng, nắm góc áo chàng. Chàng vui kín đáo vì được nàng tin tưởng, đồng thời chấn nhiếp Minh Hy vì hành vi thất lễ và một chút ghen chưa tự nhận ra.
 - Đường Minh Hy có tình cảm thật và tổn thương khi nàng xa lạ, không được giản lược thành phản diện thuần túy. Chàng chưa biết thân phận Tô Tiểu Uyển; quy tắc giữ bí mật tên thật tiếp tục áp dụng.
 - **Trạng thái:** Chương 1–4 là canon đã duyệt.
+
+
+## Canon cập nhật: Chương 5 — Một tiếng sư tôn (đã duyệt 2026-10-14)
+
+Người sáng tạo duyệt toàn văn Chương 5 làm mạch chính, tiếp nối Chương 4. Tệp: `TRUYEN/QUYEN_1_SONG_LINH/CHUONG_05_MOT_TIENG_SU_TON.md`. Bản đọc Google Docs: https://docs.google.com/document/d/1p5UOOshroxvv8XB5mgWRsGOuwOoHpGOo6X6uTNHUKOQ/edit
+
+- Diệp Vô Trần là **đệ tử của Thẩm Thanh Huyền**, gọi chàng **sư phụ**, KHÔNG gọi sư tôn. Diệp lão ngoài trăm tuổi, không dưỡng nhan, tóc bạc mặt nhăn, tiên phong đạo cốt; Thanh Huyền dưỡng nhan, tuấn mỹ thanh quý, từng là thiếu gia chủ Thẩm gia tại Cầu Tiên Thành.
+- Thẩm Thanh Huyền kín đáo trao đổi với Diệp lão về việc Đường Minh Hy không được cưỡng cầu Vô Ưu; muốn đưa nàng lên Thanh Huyền Phong, tự dạy và tìm hiểu Tô Tiểu Uyển, đồng thời giữ kín thân phận nàng.
+- Thẩm Thanh Huyền **đích thân đi cùng Diệp Vô Trần** đến gặp Vô Ưu. Tô Tiểu Uyển từ khi tỉnh chỉ quen mặt Thanh Huyền và Minh Hy nên chưa nhận ra Diệp lão. Được giới thiệu, nàng kính trọng ông là sư phụ đã nuôi dạy thân thể Vô Ưu, dù không nhớ chuyện cũ.
+- Chuyện nàng thắc mắc Diệp lão già hơn rất nhiều so với sư phụ của ông là nét hài tự nhiên. Thanh Huyền kín đáo vui vì được khen trẻ đẹp, Diệp lão bực nhẹ vì bị chê già.
+- **Trước lễ bái sư**, nàng gọi Thanh Huyền là **Thẩm tông chủ**. **Sau lễ bái sư**, nàng gọi chàng **sư tôn**, xưng con. Dù về bối phận đã thành tiểu sư muội của Diệp lão, nàng vẫn lễ phép gọi Diệp Vô Trần là **sư phụ**, được cả hai chấp thuận.
+- Vô Ưu chuyển tới **Lê Hoa Viện**, gần chính viện của Thanh Huyền trên Thanh Huyền Phong, được trực tiếp chỉ dạy từng bước. Hắn muốn nàng có nơi an tâm, đồng thời quan sát và hiểu thêm về thần hồn ngoại giới của Tô Tiểu Uyển, chưa tiết lộ cho NPC khác.
+- **Điểm nhấn kết chương:** Khi chỉ còn một mình trong thư phòng, Thanh Huyền nâng trà và khẽ gọi **“Tiểu Uyển...”**. Đây là tên thật chàng biết, trong khi trước mặt người ngoài nàng luôn là Vô Ưu. Giữ khoảnh khắc này làm điểm nhấn, không biến tình cảm mới nhen thành tình yêu được tự nhận thức quá sớm.
+- **Trạng thái:** Chương 1–5 đều là canon đã duyệt.
