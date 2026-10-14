@@ -140,3 +140,19 @@ Người sáng tạo duyệt toàn văn Chương 5 làm mạch chính, tiếp n�
 - Vô Ưu chuyển tới **Lê Hoa Viện**, gần chính viện của Thanh Huyền trên Thanh Huyền Phong, được trực tiếp chỉ dạy từng bước. Hắn muốn nàng có nơi an tâm, đồng thời quan sát và hiểu thêm về thần hồn ngoại giới của Tô Tiểu Uyển, chưa tiết lộ cho NPC khác.
 - **Điểm nhấn kết chương:** Khi chỉ còn một mình trong thư phòng, Thanh Huyền nâng trà và khẽ gọi **“Tiểu Uyển...”**. Đây là tên thật chàng biết, trong khi trước mặt người ngoài nàng luôn là Vô Ưu. Giữ khoảnh khắc này làm điểm nhấn, không biến tình cảm mới nhen thành tình yêu được tự nhận thức quá sớm.
 - **Trạng thái:** Chương 1–5 đều là canon đã duyệt.
+
+
+## Canon cập nhật: Chương 6 — Sư tôn, con đang nghe mà! (đã duyệt 2026-10-14)
+
+Người sáng tạo đã duyệt trọn Chương 6 làm mạch chính, tiếp nối Chương 5. Tệp: `TRUYEN/QUYEN_1_SONG_LINH/CHUONG_06_SU_TON_CON_DANG_NGHE_MA.md`. Google Docs: https://docs.google.com/document/d/1mtmr5outusCdFZHAlfhNRAqx9ninPdSlPFbvmDo3WIw/edit
+
+- Ngày đầu ở Thanh Huyền Phong, Tô Tiểu Uyển mang sách từ sáng đến thư phòng Thẩm Thanh Huyền để hỏi bài, không biết sư tôn phải đến Thanh Vân Chính Điện xử lý tông vụ và nghe trưởng lão/chấp sự bẩm báo. Nàng đợi tới quá ngọ, ôm sách ngủ gục trên bàn trà.
+- Thẩm Thanh Huyền trở về, thấy nàng ngủ say, nhận ra mình chưa nói rõ giờ học, hơi áy náy. Ban đầu định đánh thức, rồi lặng ngắm dáng vẻ đáng yêu và an tâm của nàng; vì sợ gió núi lạnh, hắn tự khoác áo ngoài cho nàng và để nàng ngủ thêm. Đây là rung động kín đáo, chưa tự nhận là tình yêu.
+- Nàng tỉnh thấy sư tôn đang nhìn, đỏ mặt, phát hiện lỡ chảy nước miếng lên bàn trà và cuống quýt xin lỗi; hắn không giận, trấn an và nhắc đến Tịnh Trần thuật. Nàng tò mò muốn học phép làm sạch.
+- Hắn hỏi vì sao đến và chỉnh lại giờ học theo tông vụ. Gọi đệ tử trực viện đem linh thiện khi biết nàng chưa ăn trưa. Buổi học đầu gồm linh khí, linh căn, kinh mạch, đan điền, tiểu chu thiên; nàng tò mò, suy nghĩ theo lối từ thế giới cũ, nhưng mất tập trung vì lưu luyến đôi mắt xanh biếc của hắn.
+- **Câu thoại cảm xúc trung tâm, phải giữ:** Tô Tiểu Uyển thú nhận **“Tại vì mắt sư tôn rất đẹp.”** Hắn nhắc **“Chữ nằm trên giấy, không nằm trong mắt ta.”** Ánh mắt là mô-típ kết nối và dấu hiệu rung động nhẹ, không chỉ là lời khen dung mạo bề ngoài.
+- Xưng hô bí mật: Khi chỉ có riêng hai người tại thư phòng hoặc chỗ kín, Thẩm Thanh Huyền gọi nàng **Tiểu Uyển**; nàng có thể tự xưng **Tiểu Uyển** và tiếp tục gọi hắn **sư tôn**. Trước mặt NPC khác, phải giữ tên **Vô Ưu**. Không dùng **Uyển Uyển** ở giai đoạn này.
+- Đệ tử phụ trách nội vụ vẫn là **đồng môn đến tu hành**: dùng **sư tỷ/sư muội, sư huynh/sư đệ, đệ tử trực viện, đệ tử phụ trách nội vụ** tùy tình huống; tránh gọi họ là thị nữ, nô bộc hay người hầu. Người làm công tác hậu cần đáng được tôn trọng.
+- Không tự quy định quốc gia xuất thân của Tô Tiểu Uyển hoặc gọi chữ viết thế giới cũ là chữ Hán. Dùng câu **“không hoàn toàn giống chữ ở thế giới cũ”** theo bản được duyệt.
+- Kết chương: hai người ở hai viện khác nhau, đều nhớ ánh mắt người kia; nàng quyết tâm tập trung học nhưng vẫn muốn nhìn hắn thêm. Tình cảm phát triển từ tốn, không nhảy cóc.
+- **Trạng thái:** Chương 1–6 đều là canon đã duyệt.
