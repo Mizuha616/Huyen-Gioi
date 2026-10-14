@@ -190,3 +190,23 @@ Người sáng tạo Cửu Linh đã duyệt **toàn văn không chỉnh sửa**
 - **Danh xưng:** Tên thật Tiểu Uyển chỉ dùng kín; trước mặt NPC vẫn là **Vô Ưu**. Diệp Vô Trần gọi Thẩm là **sư phụ**; Tô Tiểu Uyển gọi Thẩm là **sư tôn**.
 - **Quy tắc độ dài mới:** Các chương tiếp theo tối đa **30 trang A4**, ưu tiên **15–25 trang**, quy chiếu phông 12 pt, giãn dòng 1,5; tránh mô tả/tâm tư lặp lại.
 - **Trạng thái hiện tại: Chương 1–8 là canon đã được người sáng tạo duyệt.** Không tự sửa lại các chương đã chốt.
+
+
+## Canon cập nhật: Chương 10 — Một khúc dưới cành lê (đã duyệt 2026-10-14)
+
+Người sáng tạo Cửu Linh **duyệt nguyên văn toàn bộ bản thảo hoàn chỉnh lần 2**, không yêu cầu chỉnh sửa thêm. Chương 10 gồm **6 mục I–VI**.
+
+- **Truyện gốc (GitHub):** [TRUYEN/QUYEN_1_SONG_LINH/CHUONG_10_MOT_KHUC_DUOI_CANH_LE.md](../../TRUYEN/QUYEN_1_SONG_LINH/CHUONG_10_MOT_KHUC_DUOI_CANH_LE.md)
+- **Google Docs:** https://docs.google.com/document/d/13CfZux14iGyTdPrusYXk4sTXfkr2fqP6C-96H0y1Zlg/edit
+
+### Diễn biến chính và chi tiết tuyệt đối giữ
+- Sau Tông Môn Luận Kiếm (mạch sự kiện sau Chương 9), sư tôn đưa Tô Tiểu Uyển về Lê Hoa Viện. **Y Nguyệt mặc áo ĐỎ**, kiếm ý thanh lãnh như **trăng lạnh trên đỉnh núi tuyết**. Tô Tô bị ấn tượng bởi kiếm thế của nàng ấy.
+- Trở về sân viện, Tiểu Uyển **nhặt cành lê rơi** và múa lại những tư thế gợi cảm hứng từ Y Nguyệt, vừa hát **một khúc ca cổ phong từ thế giới hiện đại** nói về trăng lạnh, núi tuyết, người cầm kiếm. Tô Tô có **cảm âm rất tốt, giọng hát hay và múa đẹp**. Không gán lời bài hát có bản quyền cụ thể.
+- Thẩm Thanh Huyền đứng xem, **ngẩn ngơ không rời mắt**. Hắn cũng nhận ra nàng có năng lực **cảm được một phần kiếm ý chỉ qua quan sát**, chưa từng học kiếm và không vận linh lực. Đây **chỉ là tín hiệu thiên phú kiếm đạo**, chưa đồng nghĩa có thể sử dụng kiếm thuật thành thạo. Hắn hẹn sau khi nàng hồi phục kinh mạch sẽ kiểm tra rồi tự tay dạy kiếm căn bản, dự định chuẩn bị mộc kiếm cho nàng; vẫn để nàng tự chọn con đường tu luyện.
+- Khi hắn thất thần, Tiểu Uyển gọi **“Huyền Huyền”**, khiến tông chủ ngượng đến **đỏ tai, đỏ mặt**; nàng tinh nghịch trêu, nhưng hắn không trách. Bắt đầu từ câu **“Hay là Huyền Huyền không thích nghe ta gọi như thế?”**, nàng **chủ động đổi xưng hô sang “ta”** khi riêng tư. Nàng gọi hắn **“sư tôn” hoặc “Huyền Huyền”** tùy hoàn cảnh; hắn xưng **“ta”**, gọi nàng **“Tiểu Uyển” hoặc “nàng”**. Tô Tô thích gọi như thế và sư tôn đồng ý; **không dùng “chàng”** ở giai đoạn chưa thổ lộ.
+- Thẩm bắt đầu hiểu rằng lời nàng từng giải thích ở Chương 8 về **“người thân thiết”** có thể không chỉ có nghĩa tình thân gia đình, mà có thể mang **tình ý đôi lứa**. Hắn nảy sinh hy vọng **“Có lẽ nàng cũng thích ta”**, nhưng **chưa chắc chắn, chưa thổ lộ**, không tự quyết định tình cảm của nàng.
+- Thẩm nhận xét **khúc ca hợp kiếm ý Y Nguyệt**, nhưng **người khiến khúc ca đẹp đẽ trước mắt hắn là Tiểu Uyển**. Khi nàng hỏi hắn thích khúc hát hay thích nàng hát, hắn nói **“Ta thích nghe nàng hát.”** Hai người thân thiết hơn một bước.
+- **Trước mặt NPC:** Tô Tô vẫn giữ lễ sư đồ, xưng **con/đệ tử**, gọi **sư tôn**; người ngoài chỉ biết nàng là **Vô Ưu**. Thẩm dùng **Vô Ưu** và giọng tông chủ đúng bối phận. **Không tiết lộ tên thật Tiểu Uyển hay lối xưng hô “Huyền Huyền — ta”**.
+- **Lưu ý thứ tự:** Chương 10 đã được duyệt và lưu; **không tự suy đoán trạng thái canon Chương 9** chỉ dựa vào việc Chương 10 nhắc đến kết thúc luận kiếm.
+- **Độ dài:** tiếp tục tối đa 30 trang A4/chương, ưu tiên 15–25 trang, theo quy ước đã chốt.
+- **Trạng thái:** Các chương 1–8 và 10 đã được người sáng tạo duyệt; Chương 9 cần đối chiếu tệp riêng để xác nhận trạng thái.
