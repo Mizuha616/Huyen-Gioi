@@ -90,6 +90,9 @@ Thứ tự cảnh giới:
 - Trình tự: tăng ca, đêm mưa, cứu chó, tai nạn, chấp niệm cầu sinh; Vô Ưu thất bại Trúc Cơ, hai ý niệm cầu sinh giao hội, thân xác tái tạo, Diệp Vô Trần cứu giúp, Thẩm Thanh Huyền đến kiểm tra, Tô Tiểu Uyển chưa tỉnh.
 - Mạch truyện cũ không còn là tiến trình đã xảy ra của phiên bản mới; giữ những thiết lập thế giới/nhân vật không mâu thuẫn, còn các cảnh sau Chương 1 cần được viết lại.
 
+- **Chương 2: Một thoáng kinh hồng** đã được người sáng tạo duyệt, là truyện gốc nối tiếp Chương 1: [đọc Chương 2](../../TRUYEN/QUYEN_1_SONG_LINH/CHUONG_02_MOT_THOANG_KINH_HONG.md). Tô Tiểu Uyển tỉnh lại trong phòng cổ kính, phát hiện thân xác và thế giới khác lạ, nhớ mẹ và đời cũ, tìm gương, rồi vô tình ngã vào lòng Thẩm Thanh Huyền ở cửa.
+- Thẩm Thanh Huyền ưa sạch sẽ, chưa gần nữ sắc, nhưng không bài xích nàng; hai người thoáng kinh diễm, **chưa phải tình yêu**. Dung mạo chàng có **nốt ruồi lệ dưới mắt trái**, vừa thanh lãnh vừa ma mị. Chàng chỉ nhận thấy thần hồn bất thường, không biết thân phận Tô Tô. Chương 2 kết thúc ở lời mời nàng vào phòng để hỏi chuyện.
+
 ## 9. Trạng thái và việc tiếp theo
 Dự án đã có nền tảng về cảnh giới, Thanh Vân Môn, Song Linh Cộng Sinh, quan hệ nhân vật chính và một số thiết lập về Cửu Anh/Cầu Tiên Thành. Điều này không có nghĩa toàn bộ cốt truyện đã hoàn chỉnh.
 
