@@ -19,6 +19,9 @@
 
 ## Tu luyện
 - Cảnh giới: Kim Đan cảnh tầng 1.
+- Tư chất tu luyện tốt, không hề kém cỏi; điểm yếu là lười biếng và thiếu tự giác.
+- Gia tộc họ Tiêu giàu có, có điều kiện cung cấp tài nguyên tu luyện.
+- Mẫu thân Lâm Thu Ý nghiêm khắc ép hắn tu luyện đến Kim Đan cảnh tầng 1; hắn không muốn cũng không được phép lười biếng bỏ qua yêu cầu này.
 
 ## Tính cách
 - Vô tư, nhút nhát, ham ăn và thích ngủ.
