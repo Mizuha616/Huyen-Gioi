@@ -2,7 +2,7 @@
 
 *Quyển I — Song Linh*
 
-# Chương 7: Một niệm hộ nàng
+# Chương 7: Kiếm Tâm Hộ Uyển
 
 *Thanh Vân Môn — Một tháng sau.*
 
@@ -2560,4 +2560,4 @@ Và một tiếng gọi sư tôn mà hắn muốn được nghe thêm thật nhi
 
 ---
 
-*Hết Chương 7 — Một niệm hộ nàng.*
+*Hết Chương 7 — Kiếm Tâm Hộ Uyển.*

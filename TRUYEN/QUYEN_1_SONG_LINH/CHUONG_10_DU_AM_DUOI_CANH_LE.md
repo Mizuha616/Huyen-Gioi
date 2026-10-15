@@ -1,7 +1,7 @@
 # HUYỄN GIỚI
 *Quyển I — Song Linh*
 
-# Chương 10: Một khúc dưới cành lê
+# Chương 10: Dư Âm Dưới Cành Lê
 
 ## I. Dư âm kiếm hội
 
@@ -1363,4 +1363,4 @@ Nhưng lòng người nghe, dường như vẫn còn ngân mãi.
 
 ---
 
-*Hết Chương 10 — Một khúc dưới cành lê.*
+*Hết Chương 10 — Dư Âm Dưới Cành Lê.*

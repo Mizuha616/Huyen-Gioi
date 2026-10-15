@@ -1,7 +1,7 @@
 # HUYỄN GIỚI
 Quyển I — Song Linh
 
-# Chương 2: Một thoáng kinh hồng
+# Chương 2: Tỉnh Giấc Giữa Tiên Trần
 
 Điều đầu tiên Tô Tiểu Uyển cảm nhận được khi tỉnh lại là mùi hương.
 

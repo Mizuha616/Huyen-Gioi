@@ -1,7 +1,7 @@
 # HUYỄN GIỚI
 *Quyển I — Song Linh*
 
-## Chương 13: Một Bước Chưa Dám
+## Chương 13: Chậm Mất Một Nước Cờ
 
 Sáng hôm sau, Tô Tiểu Uyển bị đánh thức bởi tiếng gõ cửa.
 

@@ -1,4 +1,4 @@
-# Chương 11: Một Tấc Tương Tư
+# Chương 11: Kiếm Gỗ Và Thỏ Trắng
 
 Sớm mai, sương mỏng còn đọng trên những cánh lê trắng.
 

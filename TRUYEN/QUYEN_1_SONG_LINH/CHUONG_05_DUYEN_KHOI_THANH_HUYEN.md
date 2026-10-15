@@ -1,6 +1,6 @@
 # HUYỄN GIỚI
 Quyển I — Song Linh
-# Chương 5: Một tiếng sư tôn
+# Chương 5: Duyên Khởi Thanh Huyền
 
 Thanh Vân Môn — Sáng hôm sau.
 

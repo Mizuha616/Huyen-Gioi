@@ -1,7 +1,7 @@
 # HUYỄN GIỚI
 *Quyển I — Song Linh*
 
-## Chương 17: Một Niệm Cầu Sinh
+## Chương 17: Giữa Lằn Ranh Sinh Tử
 
 Buổi sáng tại Dược Linh Đường bắt đầu bằng một tiếng kêu thất thanh.
 

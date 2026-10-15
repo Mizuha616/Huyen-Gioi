@@ -1,7 +1,7 @@
 # HUYỄN GIỚI
 *Quyển I — Song Linh*
 
-## Chương 15: Một Lời Ước Định
+## Chương 15: Hẹn Ước Đạo Lữ
 
 *"Nàng có bằng lòng cùng ta kết làm đạo lữ không?"*
 
