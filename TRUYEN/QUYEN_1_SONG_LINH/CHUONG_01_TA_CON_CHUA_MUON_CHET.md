@@ -1,183 +1,101 @@
 # HUYỄN GIỚI
-Quyển I — Song Linh
+*Quyển I — Song Linh*
 
-# Chương 1: Ta còn chưa muốn chết
+# Chương 1: Ta Còn Chưa Muốn Chết
 
-Thành phố lên đèn từ lúc nào, Tô Tiểu Uyển cũng chẳng hay biết.
+Thành phố đã lên đèn từ lúc nào, Tô Tiểu Uyển cũng chẳng hay biết.
 
-Khi nàng bước ra khỏi tòa nhà văn phòng, kim đồng hồ trên điện thoại đã chỉ tám giờ bốn mươi bảy phút tối.
+Khi nàng bước ra khỏi tòa nhà văn phòng, đồng hồ trên điện thoại đã chỉ tám giờ bốn mươi bảy phút tối. Ngoài trời, cơn mưa cuối ngày vẫn rả rích, từng hạt mưa lạnh buốt rơi nghiêng dưới ánh đèn đường.
 
-Trời đang mưa.
+Tô Tiểu Uyển đứng nép dưới mái hiên, cúi nhìn đôi giày thể thao đã sờn mép. Một bên đế giày hơi bong, sáng nay nàng còn tự nhủ cuối tháng lĩnh lương nhất định phải mua đôi mới.
 
-Không phải cơn mưa rào đến nhanh rồi tạnh, mà là thứ mưa dai dẳng cuối ngày, từng hạt nhỏ lạnh buốt, rơi nghiêng dưới ánh đèn đường.
+Nhưng rồi nàng lại nghĩ đến tiền nhà, tiền điện và vô số khoản chi tiêu đang chờ đợi. Có lẽ đôi giày ấy vẫn phải dùng thêm một thời gian nữa.
 
-Tô Tiểu Uyển đứng dưới mái hiên, cúi đầu nhìn đôi giày thể thao đã sờn mép.
+Điện thoại chợt rung lên.
 
-Một bên đế giày hơi bong.
+Là tin nhắn từ nhóm công việc.
 
-Sáng nay nàng đã tự nhủ, cuối tháng lĩnh lương nhất định phải mua đôi mới.
+> Trưởng nhóm: Tiểu Uyển, sáng mai nhớ đến sớm một chút. Báo cáo hôm nay còn vài chỗ cần sửa.
 
-Nhưng cuối tháng còn phải đóng tiền nhà.
+Nàng nhìn màn hình, im lặng hồi lâu.
 
-Tiền điện tháng này lại tăng.
+Bản báo cáo ấy đã được sửa bốn lần. Lần đầu vì số liệu, lần thứ hai vì cách trình bày, lần thứ ba vì trưởng nhóm đổi ý. Đến lần thứ tư, ngay cả nàng cũng chẳng biết mình đang sửa vì điều gì nữa.
 
-Mẹ vừa nhắn tin hỏi nàng có ăn uống đầy đủ không.
+Cuối cùng, Tô Tiểu Uyển vẫn ngoan ngoãn trả lời.
 
-Nghĩ đến đó, Tô Tiểu Uyển bật cười khe khẽ.
+> Vâng ạ, sáng mai em sẽ đến sớm.
 
-Đầy đủ ư?
+Gửi xong, nàng tắt màn hình, thở dài.
 
-Bữa trưa hôm nay của nàng là một hộp cơm giảm giá mua từ cửa hàng tiện lợi. Buổi chiều tăng ca, đến tối chỉ kịp uống hai cốc nước lọc.
+"Đúng là kiếp làm công ăn lương..."
 
-Bụng nàng đã đói đến mức chẳng còn muốn kêu nữa.
+Nàng ngẩng đầu nhìn màn mưa, bất chợt lẩm bẩm:
 
-Điện thoại rung lên.
+"Ngày mai mà trúng số, bà đây nhất định nghỉ việc!"
 
-Một tin nhắn từ nhóm công việc.
+Vừa dứt lời, chính nàng đã bật cười. Vé số còn chẳng mua, lấy đâu ra mà trúng?
 
-[Trưởng nhóm: Tiểu Uyển, sáng mai nhớ đến sớm một chút. Báo cáo hôm nay còn vài chỗ cần sửa.]
+Một cơn gió lạnh thổi qua. Tô Tiểu Uyển kéo cao cổ áo, lấy chiếc ô gấp đã gãy mất một nan trong túi ra. Nàng vốn định gọi taxi, nhưng nghĩ đến số tiền đủ mua hai bữa sáng, cuối cùng lại thôi.
 
-Tô Tiểu Uyển nhìn màn hình.
+Bụng nàng đã đói meo.
 
-Nàng đã sửa bản báo cáo ấy bốn lần.
+Buổi trưa chỉ kịp ăn một hộp cơm giảm giá, chiều tăng ca đến tối, nàng gần như chẳng có gì vào bụng. Bây giờ, mong muốn lớn nhất của nàng chỉ là ghé qua cửa hàng tiện lợi gần khu trọ, mua một hộp mì nóng cùng quả trứng luộc.
 
-Lần đầu vì số liệu chưa đúng.
+Nếu may mắn, biết đâu còn mua được bánh bao giảm giá cuối ngày.
 
-Lần thứ hai vì cách trình bày.
+Nghĩ đến đó, bước chân nàng bất giác nhanh hơn.
 
-Lần thứ ba vì trưởng nhóm đổi ý.
+***
 
-Lần thứ tư, chính nàng cũng không biết mình đang sửa cái gì nữa.
+Ngã tư sau mưa sáng rực ánh đèn xe. Những vệt sáng đỏ vàng kéo dài trên mặt đường ướt, phản chiếu dòng xe cộ vẫn không ngừng qua lại.
 
-Một lát sau, nàng gõ:
+Tô Tiểu Uyển đứng chờ đèn tín hiệu, ánh mắt hướng về cửa hàng tiện lợi phía bên kia đường. Qua lớp kính trong suốt, nàng đã nhìn thấy tủ thức ăn nóng quen thuộc đặt cạnh quầy thu ngân.
 
-[Vâng ạ, sáng mai em sẽ đến sớm.]
-
-Gửi xong, nàng tắt màn hình.
-
-"Đúng là kiếp làm công ăn lương…"
-
-Nàng lẩm bẩm.
-
-"Ngày mai mà trúng số, bà đây nhất định nghỉ việc."
-
-Nói rồi, nàng tự bật cười.
-
-Vé số còn chẳng mua, lấy đâu ra mà trúng?
-
-Một cơn gió lạnh thổi qua mái hiên.
-
-Tô Tiểu Uyển kéo cao cổ áo khoác, nhìn màn mưa trước mặt.
-
-Chiếc ô gấp trong túi đã gãy mất một nan từ tuần trước. Mở ra thì vẫn che được đầu, nhưng bên vai trái chắc chắn sẽ ướt.
-
-Nàng do dự một chút, cuối cùng vẫn lấy ô ra.
-
-Bắt taxi?
-
-Thôi bỏ đi.
-
-Số tiền ấy đủ mua hai bữa sáng.
-
-Nàng còn muốn ghé cửa hàng tiện lợi gần khu trọ, mua một hộp mì nóng và một quả trứng.
-
-Nếu may mắn, hôm nay bánh bao cuối ngày sẽ được giảm giá.
-
-Nghĩ đến đồ ăn, bước chân Tô Tiểu Uyển bất giác nhanh hơn.
-
----
-
-Đường phố sau cơn mưa đầu mùa trơn trượt.
-
-Xe cộ nối đuôi nhau qua ngã tư, ánh đèn đỏ phản chiếu trên mặt đường thành những vệt sáng dài méo mó.
-
-Tô Tiểu Uyển đứng chờ đèn tín hiệu.
-
-Bên kia đường là cửa hàng tiện lợi nàng thường ghé.
-
-Qua lớp kính sáng trưng, nàng có thể nhìn thấy tủ thức ăn nóng đặt ngay cạnh quầy thu ngân.
-
-Mùi bánh bao dường như đã bay đến tận đây.
-
-"Chờ ta nhé, bữa tối yêu dấu…"
+"Chờ ta nhé, bữa tối yêu dấu..."
 
 Nàng vừa lẩm bẩm vừa xoa bụng.
 
-Đúng lúc ấy, một tiếng kêu rất nhỏ vang lên.
-
-"Ẳng…"
+Đúng lúc ấy, một tiếng rên ư ử yếu ớt vang lên bên cạnh.
 
 Tô Tiểu Uyển cúi đầu.
 
-Dưới gầm chiếc xe đỗ sát lề đường, một con chó nhỏ lông vàng đang co ro.
-
-Nó ướt sũng.
-
-Một chân trước dường như bị thương, mỗi lần cố đứng lên đều run rẩy.
-
-Tô Tiểu Uyển nhìn nó.
-
-Con chó cũng ngẩng đầu nhìn nàng.
-
-Một người, một chó, cách nhau chừng hai bước chân.
-
-"Ngươi cũng chưa ăn cơm à?"
+Dưới gầm chiếc xe đỗ sát lề đường, một chú chó nhỏ lông vàng đang co ro. Bộ lông ướt sũng dính sát vào thân hình gầy gò. Một chân trước của nó dường như bị thương, mỗi lần cố đứng lên đều run rẩy.
 
 Nàng ngồi xổm xuống.
 
+"Ngươi cũng chưa ăn cơm à?"
+
+Chú chó ngẩng đầu, đôi mắt đen láy nhìn nàng. Chiếc đuôi nhỏ khẽ động đậy.
+
 "Khổ thân. Xem ra hôm nay hai chúng ta đều thảm."
 
-Con chó khẽ vẫy đuôi.
-
-Tô Tiểu Uyển thở dài.
-
-Nàng mở túi xách, lục lọi một hồi, cuối cùng tìm được nửa chiếc bánh mì còn sót lại từ buổi sáng.
-
-Bánh đã hơi khô.
+Tô Tiểu Uyển thở dài, mở túi xách tìm kiếm. Một lát sau, nàng lấy ra nửa chiếc bánh mì đã hơi khô, vốn là phần còn sót lại từ buổi sáng.
 
 Nàng bẻ một miếng nhỏ, đặt xuống trước mặt nó.
 
 "Ăn tạm nhé. Ta cũng chỉ còn từng này thôi."
 
-Con chó ngửi ngửi rồi cúi xuống ăn.
+Chú chó thận trọng ngửi ngửi, rồi cúi xuống ăn.
 
-Tô Tiểu Uyển nhìn nó một lúc, trong lòng chợt mềm đi.
+Nhìn dáng vẻ đáng thương ấy, lòng nàng chợt mềm đi. Nàng đưa tay về phía chân bị thương của nó, dịu giọng hỏi:
 
 "Chân ngươi bị sao thế?"
 
-Nàng đưa tay ra.
+Chú chó hơi rụt lại, nhưng không bỏ chạy.
 
-Con chó hơi rụt lại, nhưng không bỏ chạy.
+Ngay lúc ấy, một tiếng còi xe đột ngột vang lên.
 
-Đúng lúc ấy, phía sau vang lên tiếng còi xe.
-
-Một chiếc xe tải đang chuẩn bị rời chỗ đỗ.
-
-Động cơ gầm lên.
-
-Con chó nhỏ hoảng sợ, bất ngờ chui khỏi gầm xe, lao về phía lòng đường.
+Chiếc xe tải đỗ gần đó bắt đầu khởi động. Tiếng động cơ gầm lên khiến chú chó giật mình, hoảng loạn chui khỏi gầm xe rồi lao thẳng xuống lòng đường.
 
 "Này!"
 
 Tô Tiểu Uyển đứng bật dậy.
 
-Phía trước, tín hiệu dành cho người đi bộ vừa chuyển đỏ.
+Đèn dành cho người đi bộ vừa chuyển đỏ. Từ phía ngã tư, một chiếc ô tô đang lao tới, trong khi chú chó nhỏ vẫn đứng chết trân giữa đường.
 
-Một chiếc ô tô đang lao đến từ ngã tư.
+Mọi chuyện xảy ra quá nhanh.
 
-Con chó nhỏ đứng chết trân giữa đường.
-
-Tất cả xảy ra trong vài giây.
-
-Tô Tiểu Uyển thậm chí không kịp suy nghĩ.
-
-Nàng lao tới.
-
-Cúi xuống.
-
-Hai tay ôm lấy thân hình bé nhỏ đang run rẩy ấy.
-
-Rồi dùng hết sức ném nó về phía vỉa hè.
+Tô Tiểu Uyển không kịp suy nghĩ. Nàng lao tới, cúi xuống ôm lấy thân hình đang run rẩy ấy rồi dùng hết sức đẩy nó về phía vỉa hè.
 
 "Đi mau!"
 
@@ -185,33 +103,21 @@ Tiếng phanh xe rít lên chói tai.
 
 Ánh đèn pha trắng xóa phủ kín tầm mắt.
 
-Trong khoảnh khắc cuối cùng trước khi va chạm, Tô Tiểu Uyển chỉ kịp nghĩ:
+Trong khoảnh khắc cuối cùng, nàng chỉ kịp nghĩ:
 
-Xong rồi.
+*Xong rồi.*
 
 ẦM!
 
----
+***
 
-Đau.
+Cơn đau kéo Tô Tiểu Uyển trở lại với ý thức.
 
-Đó là cảm giác đầu tiên.
+Nàng không biết mình đã bị hất đi bao xa. Khi mở mắt, thứ đầu tiên nhìn thấy là ánh đèn đường nhòe nhoẹt giữa màn mưa.
 
-Không phải thứ đau nhói thoáng qua khi bị kim đâm hay đứt tay.
+Mặt đường lạnh ngắt áp vào lưng. Mưa rơi xuống mặt, len qua tóc, thấm vào bộ quần áo đã ướt sũng. Nàng thử cử động nhưng chân không nhúc nhích được, cánh tay phải cũng gần như mất cảm giác.
 
-Mà là cơn đau dữ dội đến mức toàn bộ cơ thể dường như không còn thuộc về mình.
-
-Tô Tiểu Uyển không biết mình đã bị hất đi bao xa.
-
-Khi ý thức trở lại, nàng đang nằm trên mặt đường lạnh ngắt.
-
-Mưa rơi xuống mặt.
-
-Xuống tóc.
-
-Xuống đôi bàn tay không còn đủ sức cử động.
-
-Có người đang hét.
+Có tiếng người hoảng hốt vang lên xung quanh.
 
 "Tai nạn! Có người bị xe đâm!"
 
@@ -219,381 +125,247 @@ Có người đang hét.
 
 "Cô gái! Cô có nghe thấy tôi nói không?"
 
-Tô Tiểu Uyển nghe thấy.
+Tô Tiểu Uyển nghe thấy tất cả.
 
-Nàng muốn trả lời.
+Nàng muốn trả lời, nhưng vừa hé miệng, cơn đau dữ dội đã xé ngang lồng ngực. Một tiếng ho bật ra, mang theo vị máu tanh tràn lên cổ họng.
 
-Nhưng khi hé miệng, một luồng đau buốt lập tức xé qua lồng ngực.
+Nàng cố hít thở, nhưng mỗi hơi đều đau như có vô số mảnh kính sắc nhọn cắm sâu vào phổi.
 
-Nàng ho sặc.
+Sợ hãi dâng lên.
 
-Trong miệng tràn lên vị tanh của máu.
+Nàng muốn co người lại, muốn ôm lấy ngực, nhưng cơ thể chẳng còn nghe theo ý mình.
 
-Đau quá…
-
-Nàng cố hít một hơi.
-
-Không khí chỉ vào được một chút, rồi mắc kẹt đâu đó trong lồng ngực.
-
-Mỗi lần thở đều giống như có vô số mảnh kính sắc nhọn cắm sâu vào phổi.
-
-Nàng sợ hãi.
-
-Bản năng khiến nàng muốn co người lại, muốn ôm lấy ngực, muốn tránh khỏi cơn đau.
-
-Nhưng chân không nhúc nhích được.
-
-Cánh tay phải cũng không còn cảm giác rõ ràng.
-
-Một người đàn ông quỳ xuống bên cạnh nàng.
+Một người đàn ông vội quỳ xuống bên cạnh.
 
 "Cô ơi, cố lên! Xe cứu thương sắp đến rồi!"
 
-Tô Tiểu Uyển nhìn ông.
+Tô Tiểu Uyển nhìn ông, môi mấp máy.
 
-Môi nàng mấp máy.
-
-"Chú…"
+"Chú..."
 
 "Đừng nói! Cố giữ sức!"
 
-Nàng muốn hỏi con chó đâu.
+Nàng vốn định hỏi chú chó nhỏ có sao không.
 
-Muốn hỏi nó có chạy thoát không.
+Đúng lúc ấy, từ phía vỉa hè vang lên một tiếng sủa yếu ớt.
 
-Nhưng lúc này, ngay cả một câu hoàn chỉnh cũng trở nên xa xỉ.
+Tô Tiểu Uyển khó nhọc nghiêng mắt nhìn. Dưới mái hiên bên đường, chú chó lông vàng đang đứng run rẩy, đôi mắt vẫn hướng về phía nàng.
 
-Ở phía vỉa hè, một tiếng sủa yếu ớt vang lên.
+Nó còn sống.
 
-Con chó nhỏ đang đứng dưới mái hiên.
+*May quá.*
 
-Nó vẫn sống.
+Một chút nhẹ nhõm vừa xuất hiện, nàng đã chợt nhận ra tình cảnh của chính mình.
 
-Tô Tiểu Uyển nhìn thấy nó.
+Nàng đang nằm giữa đường, không thể đứng dậy, thậm chí hít thở cũng khó khăn.
 
-Một ý nghĩ rất kỳ lạ xuất hiện trong đầu.
+Có lẽ nàng sắp chết.
 
-May quá.
-
-Rồi ngay sau đó—
-
-Nhưng còn mình thì sao?
-
-Nàng chợt nhận ra, mình có thể sắp chết.
-
-Không phải trong phim.
-
-Không phải một câu chuyện đọc được trên mạng.
-
-Mà là chính nàng.
-
-Tô Tiểu Uyển.
-
-Hai mươi mốt tuổi.
-
-Một nhân viên văn phòng bình thường, tiền tiết kiệm chẳng được bao nhiêu, đến một đôi giày mới cũng phải đắn đo.
-
-Nàng có thể sẽ chết ngay tại đây.
-
-Giữa một con đường xa lạ, trong một đêm mưa lạnh.
-
-Ý nghĩ ấy khiến nỗi sợ bùng lên dữ dội.
-
-Không…
-
-Không được.
-
-Nàng còn trẻ mà.
+Ý nghĩ ấy khiến toàn thân Tô Tiểu Uyển lạnh toát.
 
 Nàng mới hai mươi mốt tuổi.
 
-Nàng còn chưa từng đi du lịch ở nơi mình thích.
+Một nhân viên văn phòng bình thường, chẳng có bao nhiêu tiền tiết kiệm, ngay cả việc mua đôi giày mới cũng phải đắn đo. Nàng đã dành những năm tháng vừa qua để làm việc, tiết kiệm và tự nhủ chỉ cần cố gắng thêm một chút, tương lai nhất định sẽ tốt hơn.
 
-Chưa từng có một căn phòng thực sự thuộc về mình.
+Vậy mà tương lai ấy có thể kết thúc ngay trong đêm nay.
 
-Chưa từng được ngủ một giấc thật dài mà không phải lo sáng mai đi làm muộn.
+*Không...*
 
-Nàng đã sống rất tiết kiệm.
+*Không được.*
 
-Đã cố gắng rất nhiều.
+Nàng còn chưa đến những nơi mình muốn đi, chưa có một căn phòng thật sự thuộc về mình, chưa từng được nghỉ ngơi thoải mái mà không phải lo nghĩ đến công việc ngày mai.
 
-Đã nhẫn nhịn những lời trách móc, những ngày tăng ca, những bữa cơm qua loa.
+Thậm chí...
 
-Nàng cứ nghĩ chỉ cần chịu khó thêm vài năm nữa, cuộc sống nhất định sẽ tốt hơn.
+*Mình còn chưa ăn cơm tối.*
 
-Vậy mà…
+Ý nghĩ ấy khiến mắt nàng bất giác cay xè.
 
-Vậy mà nàng sắp chết rồi sao?
+Một hộp mì nóng, một quả trứng luộc, có thể thêm chiếc bánh bao giảm giá. Nàng đã mong chờ bữa tối giản dị ấy suốt cả quãng đường về.
 
-Một giọt nước nóng lăn khỏi khóe mắt, hòa vào nước mưa.
+Thế mà bây giờ, ngay cả điều nhỏ bé đó cũng chẳng kịp thực hiện.
 
-Mình còn chưa ăn cơm tối…
+Nước mắt trào ra, hòa vào nước mưa lạnh buốt.
 
-Ý nghĩ ấy thật nhỏ bé.
+Rồi nàng nhớ đến mẹ.
 
-Nhỏ bé đến mức chính nàng cũng thấy buồn cười.
+Buổi trưa, mẹ còn nhắn tin hỏi công việc có mệt không, dặn nàng phải nhớ ăn uống đầy đủ.
 
-Nhưng chẳng hiểu sao, nó lại khiến nàng đau lòng hơn tất cả.
+Nàng đã trả lời rằng mình vẫn khỏe, bảo mẹ đừng lo.
 
-Nàng đã mong chờ bữa tối ấy suốt cả quãng đường về.
+Thật ra nàng mệt lắm.
 
-Một hộp mì nóng.
+Có những đêm tan ca trở về, nàng chỉ muốn nằm im trên giường, chẳng buồn nghĩ đến chuyện ngày mai. Nhưng dù cuộc sống có vất vả đến đâu, nàng cũng chưa từng thật sự muốn chết.
 
-Một quả trứng.
-
-Có thể thêm một chiếc bánh bao giảm giá.
-
-Chỉ vậy thôi.
-
-Một mong muốn giản dị đến đáng thương.
-
-Thế mà cũng không kịp thực hiện.
-
-Tô Tiểu Uyển bắt đầu khóc.
-
-Không thành tiếng.
-
-Nàng không còn đủ sức.
-
-Nước mắt cứ thế trào ra, nóng hổi giữa màn mưa lạnh buốt.
-
-Mẹ ơi…
-
-Nàng nhớ tin nhắn buổi trưa.
-
-[Mẹ: Dạo này công việc có mệt không con? Nhớ ăn uống đầy đủ nhé.]
-
-Nàng đã trả lời:
-
-[Con vẫn khỏe, mẹ đừng lo.]
-
-Nói dối.
-
-Nàng mệt lắm.
-
-Mệt đến mức nhiều đêm chỉ muốn nằm im không làm gì cả.
-
-Nhưng nàng chưa từng thực sự muốn chết.
-
-Dù cuộc sống có vất vả đến đâu, nàng vẫn muốn được sống.
-
-Muốn lĩnh tháng lương tiếp theo.
-
-Muốn ăn một bữa thật ngon.
-
-Muốn có một ngày nghỉ không phải nghe điện thoại của trưởng nhóm.
+Nàng vẫn muốn lĩnh tháng lương tiếp theo, muốn ăn một bữa cơm ngon, muốn có một ngày nghỉ không bị công việc làm phiền.
 
 Muốn về nhà ăn cơm mẹ nấu.
 
-Muốn một lần được sống vì chính mình.
+Muốn được sống một cuộc đời có nhiều niềm vui hơn.
 
-Đừng…
+Vậy mà giờ đây, nàng chỉ có thể nằm bất động giữa cơn mưa, chờ đợi một chiếc xe cứu thương chẳng biết có đến kịp hay không.
 
-Ý thức bắt đầu mơ hồ.
+*Mẹ ơi...*
 
-Tiếng người xung quanh xa dần.
+Nàng cố hít vào một hơi.
 
-Ánh đèn đường nhòe thành những quầng sáng.
+Đau đến mức trước mắt tối sầm.
 
-Đừng để mình chết…
+Nhưng nàng vẫn cố tiếp tục, bởi nỗi sợ lớn nhất lúc này không còn là đau đớn.
 
-Nàng cố hít thở.
+Mà là nếu nhắm mắt, nàng sẽ chẳng bao giờ tỉnh lại nữa.
 
-Một hơi.
+Tiếng còi cứu thương vọng đến từ rất xa. Ánh đèn đường nhòe dần, âm thanh xung quanh cũng trở nên mơ hồ.
 
-Rồi một hơi nữa.
+Tô Tiểu Uyển không còn cảm nhận rõ những hạt mưa rơi trên mặt.
 
-Mỗi lần đều đau đến mức gần như ngất đi.
+Trong phần ý thức cuối cùng đang dần tan rã, nàng chỉ còn một khát vọng mãnh liệt.
 
-Nhưng nàng vẫn cố.
+*Làm ơn...*
 
-Bởi nàng hiểu, nếu buông xuôi lúc này, có lẽ sẽ chẳng còn cơ hội nào nữa.
+*Ai cũng được...*
 
-Làm ơn…
+*Cho ta sống đi.*
 
-Ai cũng được…
+Nàng đã cố gắng đến tận lúc này.
 
-Cho mình sống đi…
+Nàng thật sự không cam lòng.
 
-Một tiếng còi cứu thương vang lên từ rất xa.
+**Ta còn chưa muốn chết.**
 
-Tô Tiểu Uyển muốn quay đầu nhìn.
+**Ta muốn sống!**
 
-Nhưng mí mắt đã nặng trĩu.
-
-Nàng không còn nhìn rõ bầu trời.
-
-Không còn cảm nhận được những hạt mưa rơi xuống mặt.
-
-Chỉ còn một ý niệm cuối cùng, mãnh liệt đến mức gần như thiêu đốt cả phần ý thức đang tan rã.
-
-Ta không muốn chết.
-
-Ta muốn sống!
-
----
+***
 
 Cùng lúc ấy, tại một thế giới khác.
 
-Thanh Vân Môn.
+Thanh Vân Môn, Tu Trúc Đường.
 
-Tu Trúc Đường.
+Giữa trận pháp đột phá Trúc Cơ, một thiếu nữ mười tám tuổi đang quỳ trên nền đá nứt vỡ.
 
-Một thiếu nữ mười tám tuổi đang quỳ giữa trận pháp đột phá Trúc Cơ.
+Nàng tên là Vô Ưu.
 
-Tên nàng là Vô Ưu.
+Đạo thiên lôi đầu tiên vừa giáng xuống, đánh tan phần lớn linh lực mà nàng vất vả tích góp nhiều năm. Kinh mạch đứt gãy, da thịt bỏng cháy, ngay cả thần hồn cũng bắt đầu xuất hiện dấu hiệu tan rã.
 
-Đạo thiên lôi đầu tiên đã giáng xuống.
+Vô Ưu cố chống tay xuống đất nhưng chẳng còn chút sức lực.
 
-Kinh mạch đứt gãy.
+Nàng không có thiên phú xuất chúng, cũng chẳng có gia thế hiển hách hay pháp bảo quý giá để dựa vào. Tư chất bình thường khiến con đường tu luyện của nàng khó khăn hơn người khác rất nhiều.
 
-Da thịt cháy đen.
+Thế nhưng nàng chưa từng bỏ cuộc.
 
-Linh lực tích góp nhiều năm tan thành hư vô.
+Từng ngày luyện khí, từng lần đột phá thất bại, từng đêm ngồi thiền đến khi trời sáng... Vô Ưu đều cắn răng chịu đựng.
 
-Thần hồn nàng đang vỡ vụn.
+Đến hôm nay, nàng cuối cùng cũng chạm tới ngưỡng cửa Trúc Cơ.
 
-Giữa tiếng sấm rung chuyển núi rừng, một tia thần thức yếu ớt cố bám lấy thân xác đã gần như không còn sinh cơ.
+Chỉ không ngờ, thứ chờ đợi mình lại là một đạo thiên lôi vượt xa sức chịu đựng.
 
-Vô Ưu cũng không muốn chết.
+Máu chậm rãi chảy xuống khóe môi.
 
-Nàng đã tu luyện rất lâu.
+Nàng ngẩng đầu nhìn tầng mây đen đang cuộn lại phía trên.
 
-Tư chất bình thường khiến con đường tu tiên của nàng khó khăn hơn người khác.
+Đạo thiên lôi thứ hai đã bắt đầu hình thành.
 
-Nàng không có thiên phú xuất chúng.
+Uy áp khủng khiếp đè xuống khiến chút thần thức còn sót lại của nàng run rẩy.
 
-Không có pháp bảo quý giá.
+Vô Ưu biết mình không thể chống đỡ thêm lần nữa.
 
-Cũng chẳng có gia thế hiển hách để dựa vào.
+*Ta đã cố gắng đến thế...*
 
-Nàng chỉ có thể cố gắng.
+*Chẳng lẽ vẫn phải chết sao?*
 
-Từng ngày.
+Đôi mắt nàng dần mất đi ánh sáng.
 
-Từng tháng.
+Nhưng sâu trong thần hồn sắp tan biến, một chấp niệm vẫn cố chấp không chịu buông.
 
-Từng năm.
+Nàng muốn sống.
 
-Đến hôm nay, cuối cùng nàng cũng chạm đến ngưỡng cửa Trúc Cơ.
+Dẫu chỉ còn một tia hy vọng, nàng vẫn muốn sống.
 
-Nhưng cánh cửa ấy không mở ra.
+Trên tầng mây, thiên lôi cuồn cuộn tụ lại, ánh sáng tím trắng rạch ngang bầu trời.
 
-Thay vào đó là thiên lôi.
+Ngay khi nó chuẩn bị giáng xuống, một vết nứt nhỏ bất ngờ xuất hiện giữa hư không.
 
-Một thứ sức mạnh vượt xa những gì nàng có thể chống đỡ.
+Không ai nhìn thấy vết nứt ấy.
 
-Trong khoảnh khắc thần hồn sắp tan biến, Vô Ưu chỉ còn một ý niệm mỏng manh.
+Cũng không ai biết rằng, từ một thế giới vô cùng xa xôi, có một ý niệm cầu sinh mãnh liệt đang xuyên qua ranh giới thời không.
 
-Ta đã cố gắng đến thế…
+*Ta muốn sống!*
 
-Chẳng lẽ vẫn phải chết sao?
-
-Trên tầng mây, đạo thiên lôi thứ hai bắt đầu hình thành.
-
-Nó không giống một đạo lôi kiếp thông thường.
-
-Uy áp ấy lạnh lùng, vô tình, mang theo sức mạnh đủ để xóa sạch chút thần thức còn sót lại của thiếu nữ.
-
-Và ngay khi nó chuẩn bị giáng xuống—
-
-Giữa hư không, một vết nứt nhỏ xuất hiện.
-
-Không ai nhìn thấy.
-
-Không ai nghe thấy.
-
-Nhưng từ một thế giới xa xôi, một ý niệm cầu sinh mãnh liệt đã xuyên qua ranh giới thời không.
-
-Ta muốn sống!
-
-Hai ý niệm gặp nhau.
+Hai ý niệm bất ngờ chạm vào nhau.
 
 Một thuộc về thiếu nữ mười tám tuổi đang hấp hối dưới thiên lôi.
 
-Một thuộc về cô gái hai mươi mốt tuổi vừa bị tai nạn giữa đêm mưa.
+Một thuộc về cô gái hai mươi mốt tuổi vừa gặp tai nạn giữa đêm mưa.
 
-Không có lời giao ước.
+Họ không quen biết, chưa từng gặp mặt, càng không có một lời giao ước.
 
-Không có thần linh xuất hiện ban thưởng cơ duyên.
+Nhưng trong khoảnh khắc đứng trước cái chết, cả hai đều có chung một chấp niệm.
 
-Chỉ có hai sinh mệnh đang đứng trước vực thẳm của cái chết.
+**Không cam lòng buông bỏ sinh mệnh của mình.**
 
-Và cả hai đều không cam lòng buông tay.
+Một luồng khí vận kỳ dị đột nhiên bùng lên giữa trận pháp.
 
-Trong khoảnh khắc ấy, một luồng khí vận kỳ dị bỗng bùng lên giữa trận pháp.
+Đạo thiên lôi thứ hai đang cuồn cuộn trên tầng mây bỗng khựng lại. Ánh sáng tím trắng dao động dữ dội, rồi tan biến giữa hư không như thể bị một sức mạnh vô hình ngăn cản.
 
-Đạo thiên lôi thứ hai khựng lại.
+Cùng lúc ấy, thân thể Vô Ưu bắt đầu thay đổi.
 
-Rồi tan biến.
-
-Giữa đống đất đá cháy đen, thân thể Vô Ưu bắt đầu hồi sinh.
-
-Những kinh mạch đứt gãy được nối liền.
-
-Làn da bị thiên lôi thiêu hủy chậm rãi tái tạo.
+Những kinh mạch đứt gãy chậm rãi nối liền, làn da bị thiên lôi thiêu hủy dần tái tạo. Linh khí bốn phía cuồn cuộn tràn vào trận pháp, bao phủ thiếu nữ đang nằm giữa đống đất đá cháy đen.
 
 Mái tóc đen dài trải xuống nền đá.
 
-Dung mạo vốn bình thường dần thay đổi dưới sự lưu chuyển của một luồng khí vận chưa từng xuất hiện tại Thanh Vân Môn.
+Dung mạo vốn bình thường của nàng dần trở nên thanh tú, rồi tiếp tục biến đổi dưới sự lưu chuyển của luồng khí vận kỳ dị.
 
-Một hương hoa đào thanh nhã thoảng qua giữa mùi khói cháy.
+Giữa mùi khói cháy, một hương hoa đào nhàn nhạt bất chợt lan ra.
 
-Nhưng sâu trong thức hải, có hai luồng thần thức.
+Nhưng biến đổi lớn nhất không nằm ở thân thể.
 
-Một yếu ớt, chìm vào giấc ngủ sâu.
+Sâu trong thức hải vừa được ổn định, hai luồng thần thức đang cùng tồn tại.
 
-Một xa lạ, đang chậm rãi tìm lại ý thức.
+Một luồng yếu ớt, lặng lẽ chìm vào giấc ngủ sâu.
 
-Khí Vận Song Linh Cộng Sinh.
+Luồng còn lại mang khí tức xa lạ, chậm rãi tìm lại ý thức sau một cơn đau tưởng chừng có thể xé nát linh hồn.
 
-Một thân xác.
+Không ai biết điều gì đã xảy ra.
 
-Hai linh hồn.
+Cũng chưa ai có thể gọi tên dị biến ấy.
 
-Hai chấp niệm muốn sống.
+**Khí Vận Song Linh Cộng Sinh.**
 
-Và một vận mệnh vừa rẽ sang con đường hoàn toàn khác.
+Một thân xác, hai linh hồn.
 
----
+Hai sinh mệnh vốn chẳng có quan hệ gì với nhau, giờ đây lại cùng bị ràng buộc bởi một cơ duyên không thể lý giải.
+
+Và vận mệnh của cả hai, từ khoảnh khắc ấy, đã rẽ sang một con đường hoàn toàn khác.
+
+***
 
 Bên ngoài trận pháp, Diệp Vô Trần đứng chết lặng.
 
-Ông đã chuẩn bị tinh thần chứng kiến đệ tử của mình chết dưới thiên kiếp.
+Ông đã chuẩn bị tinh thần cho tình huống xấu nhất. Khi đạo thiên lôi thứ hai hình thành, ông thậm chí còn định bất chấp tu vi chênh lệch mà xông vào cứu đệ tử.
 
-Thậm chí, khi đạo thiên lôi thứ hai hình thành, ông đã định bất chấp tu vi chênh lệch mà xông vào cứu nàng.
+Nhưng chỉ trong chớp mắt, thiên lôi đã biến mất.
 
-Nhưng giờ đây, thiên lôi biến mất.
+Người tưởng chừng không còn sinh cơ lại đang dần hồi phục.
 
-Đệ tử tưởng đã chết lại đang hồi sinh.
+Diệp Vô Trần vội bước vào trận pháp, quỳ xuống bên cạnh thiếu nữ. Khi nhìn rõ dung mạo nàng, động tác của ông thoáng khựng lại.
 
-Diệp Vô Trần nhìn thiếu nữ nằm giữa trận pháp.
+Đây vẫn là Vô Ưu sao?
 
-Dung mạo ấy…
+Những đường nét quen thuộc dường như đã thay đổi rất nhiều, đến mức nếu không tận mắt chứng kiến, ông khó lòng tin đây là đệ tử mình từng dẫn về Thanh Vân Môn.
 
-Không còn giống Vô Ưu mà ông từng biết.
+Diệp Vô Trần đặt hai ngón tay lên cổ tay nàng.
 
-Ông chậm rãi bước tới, ngồi xuống bên cạnh nàng.
+Một mạch đập yếu ớt truyền đến.
 
-Hai ngón tay đặt lên cổ tay thiếu nữ.
+Tuy yếu, nhưng đều đặn.
 
-Có mạch đập.
+Ông thở ra một hơi dài, giọng khàn đi vì xúc động.
 
-Rất yếu.
+"Vẫn còn sống..."
 
-Nhưng đều đặn.
-
-Diệp Vô Trần thở ra một hơi dài.
-
-"Vẫn còn sống…"
-
-Giọng ông khàn đi.
+Bàn tay đặt trên cổ tay thiếu nữ khẽ run.
 
 "May quá."
-
-Ông không hiểu chuyện gì đã xảy ra.
-
-Nhưng ít nhất, đệ tử mà ông dẫn về Thanh Vân Môn vẫn chưa chết.
 
 Đúng lúc ấy, một giọng nói trầm tĩnh vang lên phía sau.
 
@@ -603,51 +375,35 @@ Diệp Vô Trần lập tức quay đầu.
 
 Dưới ánh trăng vừa thoát khỏi tầng mây, một nam tử áo trắng đang đứng cách đó không xa.
 
-Mái tóc bạc dài như tuyết.
+Mái tóc dài trắng bạc như tuyết, đôi mắt xanh thẳm điểm những tia sáng tựa hàn tinh. Dung mạo ngài thanh tú, thoát tục, dưới khóe mắt trái có một nốt ruồi nhỏ. Dẫu chỉ đứng yên, khí thế trầm ổn quanh người vẫn khiến vùng linh khí hỗn loạn sau lôi kiếp dường như dịu xuống.
 
-Đôi mắt xanh thẳm, nơi đáy mắt thấp thoáng những điểm sáng tựa hàn tinh.
-
-Dung mạo thanh tú, thoát tục, nhưng khí thế quanh người khiến cả vùng linh khí hỗn loạn dường như cũng trở nên yên tĩnh.
-
-Thẩm Thanh Huyền.
-
-Tông chủ Thanh Vân Môn.
+Chính là Thẩm Thanh Huyền, tông chủ Thanh Vân Môn.
 
 Diệp Vô Trần vội đứng dậy hành lễ.
 
 "Tông chủ!"
 
-Thẩm Thanh Huyền nhìn trận pháp đã vỡ, rồi nhìn thiếu nữ đang nằm bất động.
+Thẩm Thanh Huyền đưa mắt nhìn trận pháp đã vỡ, rồi dừng lại trên thiếu nữ đang hôn mê.
 
 "Đã xảy ra chuyện gì?"
 
-Diệp Vô Trần kể lại mọi việc.
+Diệp Vô Trần lập tức kể lại toàn bộ quá trình đột phá, từ khi đạo thiên lôi đầu tiên giáng xuống cho đến lúc thân thể Vô Ưu bất ngờ hồi sinh.
 
-Từ lúc Vô Ưu bắt đầu đột phá, thiên lôi xuất hiện, cho đến khi thân thể nàng bất ngờ hồi sinh.
+Thẩm Thanh Huyền lặng lẽ nghe hết.
 
-Thẩm Thanh Huyền im lặng nghe hết.
+Sau đó, ngài bước tới bên cạnh thiếu nữ, cúi xuống kiểm tra mạch tượng.
 
-Sau đó, chàng bước đến bên cạnh thiếu nữ.
+Một luồng linh lực thủy hệ ôn hòa chậm rãi tiến vào kinh mạch nàng. Thân thể không có phản ứng bài xích, các vết thương cũng đang phục hồi thuận lợi.
 
-Chàng cúi xuống, đưa tay kiểm tra mạch tượng.
+Nhưng khi linh lực chạm đến thức hải, ánh mắt Thẩm Thanh Huyền thoáng thay đổi.
 
-Một luồng linh lực thủy hệ ôn hòa chậm rãi tiến vào kinh mạch nàng.
+Thần hồn thiếu nữ có dấu hiệu bất thường.
 
-Không có phản ứng bài xích.
+Một phần khí tức yếu ớt đến mức gần như không thể dò xét, trong khi phần còn lại lại mang dấu vết vừa được ổn định sau một biến cố cực lớn.
 
-Nhưng khi linh lực chạm đến thức hải, ánh mắt Thẩm Thanh Huyền khẽ thay đổi.
+Ngài thu hồi linh lực, không vội đưa ra kết luận.
 
-Có điều bất thường.
-
-Thần hồn của thiếu nữ dường như vừa trải qua một biến cố cực lớn.
-
-Một phần khí tức yếu ớt đến mức gần như không thể dò xét.
-
-Một phần khác lại có dấu hiệu vừa mới ổn định.
-
-Chàng không vội kết luận.
-
-Bởi những gì vừa xảy ra đã vượt khỏi phạm vi một cuộc đột phá Trúc Cơ thông thường.
+Những gì xảy ra trong trận pháp rõ ràng đã vượt khỏi phạm vi của một cuộc đột phá Trúc Cơ thông thường.
 
 "Diệp trưởng lão."
 
@@ -655,90 +411,66 @@ Bởi những gì vừa xảy ra đã vượt khỏi phạm vi một cuộc đ�
 
 "Trước mắt, đừng để người ngoài biết chuyện dung mạo của nàng thay đổi."
 
-Diệp Vô Trần hơi ngạc nhiên, rồi lập tức hiểu ra.
+Diệp Vô Trần hơi ngạc nhiên, nhưng rất nhanh đã hiểu ra.
 
-Một đệ tử ngoại môn bình thường, sau thiên kiếp lại biến thành mỹ nhân tuyệt sắc.
+Vô Ưu vốn chỉ là một đệ tử ngoại môn bình thường. Nếu chuyện nàng vượt qua lôi kiếp rồi đột nhiên thay đổi dung mạo truyền ra ngoài, khó tránh khỏi những lời đồn đoán về cơ duyên nghịch thiên.
 
-Nếu chuyện này truyền ra, nhất định sẽ kéo theo vô số lời đồn.
-
-Thậm chí có người sẽ nghi ngờ nàng đoạt được cơ duyên nghịch thiên.
-
-Mà cơ duyên, trong giới tu tiên, đôi khi cũng là nguồn gốc của tai họa.
+Mà trong giới tu tiên, một cơ duyên quá lớn đôi khi cũng đủ khiến người ta gặp họa.
 
 "Thuộc hạ hiểu."
 
-Thẩm Thanh Huyền rút tay về.
+Thẩm Thanh Huyền gật đầu.
 
 "Đưa nàng đến nơi an toàn tĩnh dưỡng. Chuyện còn lại, đợi nàng tỉnh rồi tính."
 
 "Vâng."
 
-Diệp Vô Trần cúi đầu.
+Diệp Vô Trần cúi đầu nhận lệnh.
 
-Nhưng Thẩm Thanh Huyền chưa rời đi ngay.
+Thẩm Thanh Huyền đứng dậy, nhưng chưa lập tức rời đi.
 
-Chàng ngẩng đầu nhìn khoảng trời nơi thiên lôi vừa biến mất.
+Ngài ngẩng đầu nhìn bầu trời đã khôi phục vẻ tĩnh lặng.
 
-Một đạo lôi kiếp có uy lực bất thường.
+Lôi kiếp mang uy lực bất thường, một thân thể gần như chết đi lại được tái tạo, cùng dấu vết khó lý giải trong thần hồn thiếu nữ.
 
-Một thân thể được tái tạo.
+Quá nhiều điều kỳ lạ đã xảy ra trong cùng một đêm.
 
-Một thần hồn xuất hiện những dấu hiệu không thể giải thích.
+Ngài không cho rằng tất cả chỉ là trùng hợp.
 
-Từng ấy chuyện cùng xảy ra trên người một đệ tử ngoại môn…
+Nhưng hiện tại, điều quan trọng nhất vẫn là giữ lại sinh mệnh vừa được cứu về từ ranh giới tử vong.
 
-Thẩm Thanh Huyền khẽ nhíu mày.
+"Đêm nay mọi người đều vất vả rồi."
 
-Chàng không tin đó chỉ là trùng hợp.
-
-Nhưng hiện tại, thiếu nữ vẫn đang hôn mê.
-
-Không có chứng cứ, mọi suy đoán đều vô nghĩa.
-
-Chàng quay người, giọng nói vẫn bình thản.
-
-"Đêm nay, mọi người đều vất vả rồi."
+Giọng Thẩm Thanh Huyền vẫn ôn hòa, trầm tĩnh.
 
 "Trước hết, cứu người."
 
----
+***
 
 Đêm dần về khuya.
 
-Trong một căn phòng yên tĩnh của Thanh Vân Môn, ánh nến lay động bên cửa sổ.
-
-Thiếu nữ nằm trên giường đã được thay y phục sạch sẽ.
+Trong một căn phòng yên tĩnh của Thanh Vân Môn, thiếu nữ đã được thay y phục sạch sẽ, nằm nghỉ trên chiếc giường phủ chăn mềm.
 
 Hơi thở nàng dần ổn định.
 
-Ngoài kia, trúc xanh xào xạc trong gió.
+Ngoài cửa sổ, trúc xanh xào xạc trong gió. Không còn tiếng sấm, cũng chẳng còn mùi khói cháy sau lôi kiếp. Chỉ có hương hoa đào rất nhẹ vẫn phảng phất quanh mái tóc đen dài.
 
-Không còn tiếng sấm.
+Sâu trong thức hải, thần thức của Vô Ưu đã chìm vào giấc ngủ.
 
-Không còn mưa.
+Còn ý thức của Tô Tiểu Uyển đang chậm rãi trở lại.
 
-Chỉ có một mùi hương hoa đào rất nhẹ, như vẫn lưu lại trên mái tóc đen dài.
+Nàng không biết rằng mình đã rời xa thành phố quen thuộc, không biết bản thân đang nằm trong thân xác của một thiếu nữ khác, càng không biết có một linh hồn vẫn đang cùng mình tồn tại.
 
-Sâu trong thức hải, thần thức của Vô Ưu lặng lẽ ngủ say.
+Trong ký ức cuối cùng của nàng chỉ có màn mưa lạnh, ánh đèn pha chói mắt, tiếng còi cứu thương từ rất xa và nỗi sợ hãi khi nhận ra sinh mệnh đang rời bỏ mình.
 
-Còn ở một nơi khác trong cùng thân xác ấy, ý thức của Tô Tiểu Uyển đang dần trở lại.
+Nàng đã từng nghĩ mình sẽ không bao giờ tỉnh lại nữa.
 
-Không phải từ một giấc ngủ bình thường.
+Vậy mà giờ đây, hơi thở đã trở nên nhẹ nhàng, cơn đau dần tan biến.
 
-Mà từ ranh giới giữa sống và chết.
+Lời cầu xin tuyệt vọng giữa đêm mưa dường như đã được đáp lại.
 
-Nàng đã từng đau đớn.
+Chỉ là khi mở mắt lần nữa, Tô Tiểu Uyển sẽ phải đối diện với một sự thật mà nàng chưa từng tưởng tượng nổi.
 
-Đã từng sợ hãi.
+**Thế giới nàng từng sống, đã ở rất xa rồi.**
 
-Đã từng hối tiếc vì một bữa cơm chưa kịp ăn.
-
-Và trong khoảnh khắc cuối cùng, nàng đã cầu xin được sống.
-
-Giờ đây, lời cầu xin ấy dường như đã được đáp lại.
-
-Nhưng thế giới chờ đợi nàng khi mở mắt…
-
-Không còn là thế giới nàng từng biết.
-
-Hết chương 1.
+*— Hết chương 1 —*
