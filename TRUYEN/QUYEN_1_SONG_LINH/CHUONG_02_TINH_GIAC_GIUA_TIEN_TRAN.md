@@ -3,659 +3,211 @@ Quyển I — Song Linh
 
 # Chương 2: Tỉnh Giấc Giữa Tiên Trần
 
-Điều đầu tiên Tô Tiểu Uyển cảm nhận được khi tỉnh lại là mùi hương.
+Điều đầu tiên Tô Tiểu Uyển cảm nhận được khi tỉnh lại là mùi hương gỗ trầm thoang thoảng, hòa cùng hơi cỏ cây sau mưa.
 
-Một mùi hương rất nhẹ.
-
-Không giống mùi thuốc sát trùng trong bệnh viện, cũng không phải mùi ẩm mốc quen thuộc của căn phòng trọ nhỏ nàng thuê.
-
-Đó là hương gỗ trầm thoang thoảng, hòa cùng mùi cỏ cây sau mưa, thanh mát đến mức khiến người ta bất giác muốn hít một hơi thật sâu.
-
-Và nàng đã làm như thế.
-
-Một hơi thật dài.
+Nàng vô thức hít sâu một hơi, rồi chợt sững người.
 
 Không đau.
 
-Tô Tiểu Uyển khựng lại.
+Không còn cảm giác xương cốt vỡ vụn, không còn vị máu tanh nơi cổ họng. Cơn đau khủng khiếp từ vụ tai nạn đã hoàn toàn biến mất.
 
-Nàng nằm bất động trên giường, đôi mắt còn chưa mở hẳn.
-
-Không đau?
-
-Nàng thử hít thêm một hơi nữa.
-
-Lồng ngực phập phồng nhẹ nhàng.
-
-Không có cảm giác xương cốt vỡ vụn, không có vị máu tanh tràn lên cổ họng, càng không có cơn đau như hàng ngàn mảnh kính cắm sâu vào phổi.
-
-Chuyện gì vậy?
-
-Nàng nhớ rất rõ.
-
-Đêm mưa.
-
-Chiếc xe lao đến.
-
-Con chó nhỏ.
-
-Tiếng phanh xe.
-
-Và cơn đau khủng khiếp khiến nàng tưởng như cả người bị xé làm đôi.
-
-Sau đó…
+Nhưng nàng vẫn nhớ rõ đêm mưa ấy. Chiếc xe lao đến, con chó nhỏ giữa đường, tiếng phanh chói tai và khoảnh khắc thân thể bị hất văng.
 
 Nàng đã cầu xin được sống.
 
-Tô Tiểu Uyển đột ngột mở mắt.
+Tô Tiểu Uyển mở bừng mắt.
 
-Trên đầu nàng không phải trần nhà trắng toát của bệnh viện.
+Trên đầu không phải trần nhà bệnh viện, mà là những thanh xà gỗ chạm hoa văn mây cuộn. Màn lụa xanh nhạt buông bên giường, khẽ lay động trong gió.
 
-Mà là một mái nhà bằng gỗ, những thanh xà ngang được chạm khắc hoa văn mây cuộn, giản dị nhưng tinh xảo.
+Nàng ngồi dậy, ngơ ngác nhìn quanh.
 
-Một tấm màn lụa màu xanh nhạt buông xuống bên giường, khẽ lay động trong gió.
+Căn phòng không lớn, bài trí thanh nhã. Bên giường là bàn trà bằng gỗ, đối diện có giá sách và một bức thủy mặc vẽ núi non trùng điệp. Tất cả đều mang dáng vẻ cổ xưa.
 
-Nàng chớp mắt.
+Không điện thoại, không đèn điện, càng không có bất kỳ thứ gì quen thuộc với cuộc sống của nàng.
 
-Một lần.
+"Đây là đâu?"
 
-Hai lần.
+Vừa cất tiếng, nàng đã nhận ra điều bất thường.
 
-Rồi chậm rãi ngồi dậy.
+Giọng nói này trong trẻo, mềm mại hơn trước.
 
-"…?"
+Tô Tiểu Uyển cúi xuống nhìn bàn tay mình. Những ngón tay thon dài, làn da trắng mịn, vết sẹo do bỏng nước sôi đã biến mất. Ngay cả nốt ruồi gần khuỷu tay trái cũng không còn.
 
-Trước mặt nàng là một căn phòng xa lạ.
+Nàng vội kéo tay áo lên kiểm tra, rồi nhìn mái tóc đen dài đến tận thắt lưng đang xõa trước ngực.
 
-Không lớn.
+Rõ ràng đây không phải thân thể của nàng.
 
-Một chiếc giường gỗ đặt sát vách, bên cạnh là chiếc bàn thấp, trên bàn có một ấm trà bằng gốm trắng cùng hai chiếc chén nhỏ.
+"Đừng nói là… xuyên không thật nhé?"
 
-Phía đối diện là một giá sách đơn sơ. Vài quyển sách được khâu gáy bằng chỉ xanh xếp ngay ngắn bên cạnh một chiếc hộp gỗ.
+Tô Tiểu Uyển từng đọc không ít tiểu thuyết xuyên không, nhưng chưa bao giờ nghĩ có ngày chính mình gặp phải chuyện hoang đường ấy.
 
-Trên vách treo một bức thủy mặc vẽ núi non trùng điệp.
+Nàng thử véo má.
 
-Không có tivi.
+"Á! Đau!"
 
-Không có tủ lạnh.
+Được rồi. Không phải mơ.
 
-Không có đèn điện.
+Nàng ngồi thừ trên giường một lúc, cố sắp xếp lại những suy nghĩ hỗn loạn. Ít nhất, nàng vẫn còn sống. Chỉ là chưa biết mình đã trở thành ai.
 
-Càng không có chiếc điện thoại mà nàng vẫn thường đặt cạnh gối trước khi ngủ.
+Nghĩ đến đây, nàng lập tức xuống giường tìm gương.
 
-Tô Tiểu Uyển ngồi ngây ra.
+Trên bàn không có, trong ngăn kéo cũng không. Nàng lục tìm một hồi, chỉ thấy vài chiếc khăn tay và túi hương nhỏ.
 
-"Đây là đâu…?"
+"Thời đại gì mà đến cái gương cũng không có thế này…"
 
-Giọng nói vừa vang lên, nàng lập tức ngừng lại.
+Nàng vừa lẩm bẩm vừa bước đến cửa sổ, rồi bất giác dừng lại.
 
-Không đúng.
+Bên ngoài là một khoảng sân lát đá xanh, giữa sân có cây cổ thụ khổng lồ. Tán cây trải rộng, những dây leo mảnh rủ xuống mang theo vô số đóa hoa trắng bạc. Mỗi khi gió thổi, cánh hoa lại lấp lánh như những đốm sao.
 
-Giọng của nàng…
+Dưới gốc cây, những bụi cỏ xanh ngọc khẽ khép lá khi bướm bay ngang. Xa hơn là những mái điện cổ kính ẩn hiện giữa biển mây, tiếng chuông ngân vọng qua núi rừng.
 
-Hình như khác rồi.
+Tô Tiểu Uyển đứng lặng.
 
-Vẫn là giọng nữ, nhưng trong trẻo hơn, mềm mại hơn, tựa tiếng chuông bạc khẽ ngân.
+Nơi này đẹp đến mức nàng tưởng mình đang nhìn vào một bức tranh tiên cảnh.
 
-Nàng đưa tay lên cổ.
+Nhưng càng ngắm, lòng nàng càng chùng xuống.
 
-Rồi bất chợt nhìn xuống.
+Không có tiếng xe, không có những tòa nhà cao tầng hay đường phố đông đúc. Thế giới nàng đã sống suốt hai mươi mốt năm dường như thực sự biến mất.
 
-Bàn tay ấy trắng nõn, thon dài, đầu ngón tay hồng nhạt. Trên mu bàn tay không có vết sẹo nhỏ do lần trước nàng bất cẩn làm đổ nước sôi.
+Nàng bất giác nhớ căn phòng trọ nhỏ, chiếc bàn gấp cạnh giường, đôi giày đã bong đế và chiếc điện thoại có lẽ vẫn nằm đâu đó trên con đường đầy mưa.
 
-Tô Tiểu Uyển sững sờ.
+Rồi nàng nhớ đến mẹ.
 
-Nàng lật bàn tay lại.
+Nếu nàng đã chết ở thế giới cũ, liệu mẹ có biết chưa? Ai sẽ báo tin? Ai sẽ đưa nàng về nhà?
 
-Nhìn lòng bàn tay.
+Sống mũi cay xè, Tô Tiểu Uyển cúi đầu.
 
-Rồi nhìn cổ tay.
+Nàng đã được sống, nhưng có lẽ phải đánh đổi bằng việc vĩnh viễn không thể trở về.
 
-Cổ tay nhỏ nhắn đến mức nàng có cảm giác chỉ cần dùng hai ngón tay cũng có thể ôm trọn.
+Một lúc sau, nàng lau khóe mắt, cố trấn tĩnh.
 
-"Khoan đã…"
+Dù thế nào, trước tiên cũng phải tìm hiểu nơi này.
 
-Nàng vội kéo tay áo lên.
+Và nàng vẫn cần một cái gương.
 
-Làn da trắng mịn như ngọc.
+***
 
-Không có vết bầm.
+Tô Tiểu Uyển đẩy cửa bước ra ngoài.
 
-Không có vết thương.
+Đúng lúc ấy, một người vừa đi lên bậc thềm. Nàng không kịp dừng, mũi chân vướng vào ngưỡng cửa cao, cả người chúi về phía trước.
 
-Không có dấu vết nào của vụ tai nạn.
+"A!"
 
-Ngay cả nốt ruồi nhỏ gần khuỷu tay trái cũng biến mất.
+Theo bản năng, nàng đưa tay níu lấy thứ gần nhất.
 
-Một luồng lạnh chạy dọc sống lưng.
+Một vạt áo trắng.
 
-Tô Tiểu Uyển cúi xuống nhìn người mình.
+Trán nàng va vào lồng ngực người nọ, cùng lúc một bàn tay giữ lấy cánh tay nàng, bàn tay còn lại đỡ sau lưng, ngăn nàng ngã xuống.
 
-Nàng đang mặc một bộ trung y trắng bằng thứ vải mềm mại chưa từng thấy, bên ngoài khoác áo mỏng màu xanh nhạt.
+Hương tuyết lạnh hòa cùng mùi trúc thanh khiết thoảng qua.
 
-Mái tóc đen dài xõa xuống trước ngực.
+Tô Tiểu Uyển hoảng hốt, vô thức nắm chặt vạt áo trước ngực đối phương.
 
-Rất dài.
+***
 
-Dài đến tận thắt lưng.
+Thẩm Thanh Huyền vốn đến kiểm tra tình trạng thiếu nữ vừa trải qua thiên kiếp.
 
-Trong khi trước đây, tóc nàng chỉ vừa chạm vai.
+Đêm qua, thần hồn nàng xuất hiện dị tượng, thân thể lại được tái tạo theo cách chưa từng thấy. Chàng muốn xác nhận nàng đã tỉnh hay chưa, không ngờ vừa đến cửa đã gặp cảnh này.
 
-Nàng đưa tay nắm lấy một lọn tóc.
+Với tu vi Đại Thừa viên mãn, tránh một cú va chạm dễ như trở bàn tay. Nhưng nhận ra người sắp ngã là thiếu nữ ấy, chàng lập tức thu linh lực hộ thể, đưa tay đỡ lấy nàng.
 
-Sợi tóc mềm mại, đen nhánh, phản chiếu ánh sáng nhè nhẹ.
+Đến khi thân thể nhỏ nhắn thực sự ngã vào lòng, Thẩm Thanh Huyền mới thoáng khựng lại.
 
-Tô Tiểu Uyển ngẩn ngơ.
+Hơn ngàn năm qua, chàng luôn giữ khoảng cách với người khác, không thích những tiếp xúc thân thể không cần thiết. Ngay cả đệ tử thân cận cũng hiếm khi đứng quá gần.
 
-Một ý nghĩ khó tin chậm rãi xuất hiện.
+Vậy mà lúc này, chàng không hề thấy khó chịu.
 
-*Chẳng lẽ…*
+Mái tóc đen mềm mại lướt qua mu bàn tay, mang theo hương hoa đào nhàn nhạt. Thiếu nữ vẫn đang nắm chặt áo chàng, nhưng chàng cũng không vội gỡ tay nàng ra.
 
-*Không thể nào.*
+Một chút nghi hoặc thoáng qua đôi mắt xanh thẳm.
 
-Nàng nhìn quanh phòng thêm lần nữa.
+Chàng chưa kịp suy xét, người trong lòng đã ngẩng đầu.
 
-Giường gỗ.
+***
 
-Màn lụa.
+Tô Tiểu Uyển định mở miệng xin lỗi.
 
-Bàn trà.
+Nhưng vừa nhìn thấy người trước mặt, nàng lập tức quên sạch những lời đã chuẩn bị.
 
-Sách cổ.
+Đó là một nam tử cao lớn, khoác trường bào trắng như tuyết. Mái tóc bạc dài được giữ bằng ngọc quan giản dị, vài lọn tóc buông bên thái dương.
 
-Trang phục kỳ lạ.
+Gương mặt chàng đẹp đến mức gần như không chân thực. Sống mũi cao thẳng, đường nét thanh nhã, làn da trắng lạnh như ngọc.
 
-Rồi nhìn lại bàn tay không thuộc về mình.
+Nhưng câu dẫn nhất vẫn là đôi mắt.
 
-*Đừng nói là… xuyên không nhé?*
+Sắc xanh thăm thẳm như hồ nước giữa núi tuyết, điểm những ánh sao li ti, vừa thanh lãnh vừa sâu không thấy đáy.
 
-Ý nghĩ ấy khiến tim nàng đập thình thịch.
+Dưới đuôi mắt trái có một nốt ruồi lệ nhỏ. Chính điểm nhấn ấy khiến vẻ thoát tục của chàng phảng phất thêm vài phần ma mị, quyến rũ khó tả.
 
-Nàng từng đọc không ít tiểu thuyết xuyên không trong những đêm mất ngủ.
+Tô Tiểu Uyển ngẩn người.
 
-Nhưng đọc truyện là một chuyện.
+*Trời đất ơi… Người thật à?*
 
-Đột nhiên tỉnh dậy trong thân xác xa lạ lại là chuyện hoàn toàn khác.
+Nàng từng thấy không ít nam diễn viên đẹp trai, nhưng chưa ai mang khí chất như người trước mặt.
 
-Nhất là khi ký ức cuối cùng của nàng vẫn còn nguyên cơn đau lúc bị xe đâm.
-
-Tô Tiểu Uyển đưa tay véo mạnh vào má.
-
-"Á!"
-
-Đau.
-
-Rất đau.
-
-Nàng lập tức buông tay, ôm má.
-
-Không phải mơ.
-
-Nàng ngồi bất động hồi lâu.
-
-Sau đó, như chợt nhớ ra điều gì, nàng vội vàng vén chăn xuống giường.
-
-Bàn chân vừa chạm đất, một cảm giác kỳ lạ truyền đến.
-
-Thân thể này nhẹ quá.
-
-Nàng đứng dậy mà không hề thấy chóng mặt.
-
-Không đau.
-
-Không mệt.
-
-Thậm chí còn có một luồng hơi ấm rất mỏng đang chậm rãi lưu chuyển trong cơ thể.
-
-Tô Tiểu Uyển cúi đầu nhìn mình.
-
-Nàng có thể xác nhận ít nhất một chuyện.
-
-Đây tuyệt đối không phải thân thể cũ.
-
-Nhưng…
-
-Nàng đã biến thành ai?
-
-Mặt mũi bây giờ ra sao?
-
-Có phải một bà lão không?
-
-Hay một cô nương xấu xí nào đó?
-
-Nàng lập tức quay đầu tìm kiếm.
-
-Trên bàn không có gương.
-
-Trong hộp gỗ không có gương.
-
-Trên giá sách cũng không.
-
-Nàng mở thử một ngăn kéo.
-
-Bên trong chỉ có vài chiếc khăn tay được gấp ngay ngắn và một túi hương nhỏ.
-
-"Gương đâu rồi…"
-
-Tô Tiểu Uyển lẩm bẩm.
-
-"Thời đại gì mà trong phòng không có lấy một cái gương thế này?"
-
-Nàng bước đến bên cửa sổ.
-
-Rồi khựng lại.
-
-Bởi cảnh tượng bên ngoài khiến mọi suy nghĩ trong đầu nàng tạm thời biến mất.
-
----
-
-Ngoài cửa sổ là một khoảng sân lát đá xanh.
-
-Giữa sân có một cây cổ thụ khổng lồ, thân cây lớn đến mức có lẽ phải bốn, năm người trưởng thành mới ôm xuể.
-
-Tán lá xanh thẫm trải rộng như một chiếc lọng khổng lồ, che phủ gần nửa khoảng sân.
-
-Từ những cành cây rủ xuống vô số sợi dây leo mảnh, trên đó nở những đóa hoa nhỏ màu trắng bạc.
-
-Điều kỳ lạ là mỗi khi gió thổi qua, những đóa hoa ấy lại phát ra ánh sáng lấp lánh, tựa những đốm sao đang ngủ quên giữa ban ngày.
-
-Dưới gốc cổ thụ mọc những bụi cỏ thấp.
-
-Lá cỏ có màu xanh ngọc, mép lá ánh lên một đường viền bạc.
-
-Một vài phiến lá chậm rãi khép lại khi có con bướm bay qua, rồi lại mở ra khi nó rời đi.
-
-Xa hơn là những mái điện cổ kính thấp thoáng giữa biển mây.
-
-Từng làn khói trắng mỏng manh bay lên từ những lư hương đặt dọc hành lang, quyện cùng sương núi, khiến cả khu viện trông như chìm trong một bức tranh thủy mặc.
-
-Tiếng chuông ngân vọng từ rất xa.
-
-Trầm.
-
-Trong.
-
-Kéo dài giữa núi rừng.
-
-Tô Tiểu Uyển vô thức nín thở.
-
-Đẹp quá.
-
-Nàng chưa từng nhìn thấy nơi nào như vậy.
-
-Ngay cả những khu du lịch nổi tiếng trên mạng cũng không thể so sánh.
-
-Nhưng vẻ đẹp ấy đồng thời khiến nàng bất an.
-
-Bởi mọi thứ đều quá xa lạ.
-
-Không có tiếng xe cộ.
-
-Không có tiếng còi.
-
-Không có những tòa nhà cao tầng chen chúc.
-
-Không có dây điện giăng ngang bầu trời.
-
-Thế giới mà nàng đã sống suốt hai mươi mốt năm…
-
-Dường như thực sự biến mất rồi.
-
-Nàng chậm rãi đặt tay lên khung cửa.
-
-Trong một khoảnh khắc, Tô Tiểu Uyển bỗng nhớ đến căn phòng trọ nhỏ của mình.
-
-Chiếc bàn gấp đặt cạnh giường.
-
-Cốc mì ăn dở.
-
-Đôi giày bị bong đế.
-
-Và chiếc điện thoại chắc hẳn vẫn đang nằm đâu đó trên con đường đầy mưa.
-
-Mẹ nàng…
-
-Liệu đã biết chuyện chưa?
-
-Nếu nàng thực sự chết rồi…
-
-Ai sẽ gọi điện báo tin?
-
-Ai sẽ đưa nàng về nhà?
-
-Một nỗi buồn âm ỉ bất chợt dâng lên.
-
-Tô Tiểu Uyển cúi đầu.
-
-Nàng đã được sống.
-
-Nhưng cái giá của sự sống ấy, có lẽ là vĩnh viễn không thể quay về.
-
-Một lúc lâu sau, nàng khẽ lau khóe mắt.
-
-Không.
-
-Bây giờ chưa phải lúc khóc.
-
-Trước tiên phải tìm hiểu xem mình đang ở đâu.
-
-Và quan trọng nhất—
-
-Phải tìm một cái gương.
-
-Nàng muốn biết mình đã biến thành bộ dạng gì.
-
----
-
-Tô Tiểu Uyển đi đến cửa.
-
-Cánh cửa gỗ được khép hờ.
-
-Nàng đưa tay đẩy ra.
-
-Cùng lúc ấy, từ bên ngoài, một người vừa bước lên bậc thềm.
-
-Tô Tiểu Uyển không ngờ có người đứng ngay trước cửa.
-
-Nàng bước quá nhanh.
-
-Mũi chân vướng vào ngưỡng cửa cao.
-
-"A—!"
-
-Cả người mất thăng bằng.
-
-Theo bản năng, nàng đưa tay ra phía trước.
-
-Nhưng thứ nàng chạm vào không phải khung cửa.
-
-Mà là một vạt áo trắng.
-
-Ngay sau đó, trán nàng va vào một lồng ngực rắn chắc.
-
-Một mùi hương thanh lãnh thoảng qua.
-
-Tựa tuyết đầu mùa hòa cùng hương trúc sau mưa.
-
-Tô Tiểu Uyển chưa kịp hiểu chuyện gì xảy ra, thân thể đã chúi về phía trước.
-
-Một bàn tay bất ngờ giữ lấy cánh tay nàng.
-
-Bàn tay còn lại đỡ nhẹ sau lưng.
-
-Động tác nhanh đến mức gần như không thể nhìn rõ.
-
-Và thế là nàng ngã gọn vào lòng người vừa đến.
-
----
-
-Thẩm Thanh Huyền khựng lại.
-
-Chàng vốn đến để kiểm tra tình trạng của thiếu nữ vừa trải qua thiên kiếp.
-
-Đêm qua, thần hồn nàng có dấu hiệu bất thường, thân thể lại được tái tạo theo cách chưa từng thấy.
-
-Chàng muốn tận mắt xác nhận nàng đã tỉnh hay chưa.
-
-Không ngờ vừa đến cửa, cánh cửa đã đột ngột mở ra.
-
-Một bóng người nhỏ nhắn lao thẳng vào ngực chàng.
-
-Với tu vi Đại Thừa viên mãn, tránh một cú va chạm như vậy dễ như trở bàn tay.
-
-Thậm chí, chỉ cần một ý niệm, linh lực hộ thể cũng đủ ngăn bất kỳ ai tiếp cận.
-
-Nhưng khi nhận ra người sắp ngã là thiếu nữ vừa tỉnh lại sau thiên kiếp, chàng đã thu linh lực hộ thể.
-
-Rồi đưa tay đỡ nàng.
-
-Động tác hoàn toàn tự nhiên.
-
-Cho đến khi người ấy thực sự ngã vào lòng.
-
-Thẩm Thanh Huyền mới nhận ra khoảng cách giữa hai người gần đến mức nào.
-
-Một thân thể mềm mại, ấm áp.
-
-Mái tóc đen dài khẽ lướt qua mu bàn tay chàng.
-
-Hương hoa đào nhàn nhạt len vào hơi thở.
-
-Chàng hơi cứng người.
-
-Đã hơn ngàn năm, Thẩm Thanh Huyền luôn giữ khoảng cách với người khác.
-
-Chàng không thích những tiếp xúc thân thể không cần thiết.
-
-Y phục thường dùng đều được gia trì pháp thuật tránh bụi.
-
-Ngay cả những đệ tử thân cận cũng hiếm khi đứng quá gần chàng.
-
-Nếu là người khác bất ngờ lao vào lòng, phản ứng đầu tiên của chàng hẳn sẽ là lập tức tránh đi.
-
-Nhưng lúc này…
-
-Chàng không thấy khó chịu.
-
-Không có cảm giác bài xích.
-
-Thậm chí, khi thiếu nữ vì hoảng hốt mà vô thức nắm chặt vạt áo trước ngực chàng, Thẩm Thanh Huyền cũng không lập tức gỡ tay nàng ra.
-
-Chàng chỉ hơi cúi mắt.
-
-Một thoáng nghi hoặc lướt qua đáy mắt xanh thẳm.
-
-*Vì sao?*
-
-Chàng chưa kịp tìm ra lời giải.
-
-Thiếu nữ trong lòng đã ngẩng đầu.
-
----
-
-Tô Tiểu Uyển vốn đang hoảng hốt.
-
-Nàng vừa tỉnh dậy trong một thế giới xa lạ, chưa kịp hiểu thân phận của mình, đã đâm sầm vào một người không quen biết.
-
-Nàng định mở miệng xin lỗi.
-
-Nhưng khi ngước mắt lên—
-
-Mọi lời nói bỗng mắc lại nơi cổ họng.
-
-Người trước mặt nàng là một nam tử cao lớn, khoác trường bào trắng như tuyết.
-
-Mái tóc bạc dài được buộc hờ bằng một chiếc quan ngọc giản dị, vài lọn tóc rơi xuống bên thái dương.
-
-Gương mặt chàng thanh tú đến mức gần như không chân thực.
-
-Sống mũi cao thẳng.
-
-Đường nét hàm thanh nhã.
-
-Làn da trắng lạnh như ngọc.
-
-Nhưng điều khiến nàng ngẩn người nhất là đôi mắt.
-
-Một đôi mắt xanh thẳm.
-
-Không phải màu xanh của biển dưới nắng.
-
-Mà là màu xanh sâu hun hút của hồ nước giữa núi tuyết, trong trẻo, tĩnh lặng, như cất giấu cả ngàn năm phong sương.
-
-Ngay dưới đuôi mắt trái là một nốt ruồi lệ nhỏ, sẫm màu trên làn da trắng lạnh. Chỉ một điểm nhấn ấy đã khiến vẻ thanh lãnh, thoát tục của chàng phảng phất thêm vài phần ma mị, quyến rũ khó nói thành lời.
-
-Ánh mắt ấy đang nhìn nàng.
-
-Bình tĩnh.
-
-Có chút dò xét.
-
-Và dường như còn một điều gì đó rất khó gọi tên.
-
-Tô Tiểu Uyển quên cả chớp mắt.
-
-*Trời đất ơi…*
-
-*Người thật à?*
-
-Nàng từng thấy không ít nam diễn viên đẹp trai trên màn ảnh.
-
-Nhưng người trước mặt hoàn toàn khác.
-
-Không phải chỉ vì dung mạo.
-
-Mà vì khí chất.
-
-Chàng đứng đó, giữa hành lang gỗ đơn sơ, nhưng lại khiến cả khoảng sân đầy hoa cỏ kỳ dị phía sau như trở thành phông nền.
+Chàng chỉ đứng đó, vậy mà cảnh sắc tiên gia phía sau dường như đều trở thành phông nền.
 
 Tựa một vị tiên nhân bước ra từ tranh cổ.
 
-Tô Tiểu Uyển vô thức nín thở.
-
 *Đẹp quá…*
 
----
+Nàng nhìn đến quên cả chớp mắt.
 
-Cùng lúc ấy, ánh mắt Thẩm Thanh Huyền cũng dừng trên gương mặt thiếu nữ.
+***
 
-Đêm qua, chàng đã nhìn thấy dung mạo sau khi tái tạo của nàng.
+Thẩm Thanh Huyền cũng đang nhìn nàng.
 
-Nhưng khi ấy, nàng vẫn hôn mê.
+Đêm qua, chàng đã thấy dung mạo sau khi tái tạo của thiếu nữ, nhưng khi ấy nàng còn hôn mê, sắc mặt tái nhợt, thần hồn bất ổn.
 
-Sắc mặt tái nhợt.
+Giờ đây, đôi mắt tím biếc ấy đã mở to, long lanh như chứa cả một hồ nước xuân. Hàng mi dài khẽ run, gò má trắng nõn ửng hồng, vài sợi tóc đen rơi xuống bên má.
 
-Thần hồn bất ổn.
+Nàng nhìn chàng chăm chú, không chút che giấu.
 
-Mọi sự chú ý của chàng đều đặt vào biến cố kỳ lạ vừa xảy ra.
-
-Còn lúc này…
-
-Nàng đã tỉnh.
-
-Đôi mắt tím biếc mở to, long lanh như chứa cả một hồ nước xuân.
-
-Hàng mi dài khẽ run.
-
-Gò má trắng nõn còn vương chút hồng nhạt, không rõ vì vừa vấp ngã hay vì bối rối.
-
-Môi nàng hé mở, dường như định nói gì đó nhưng lại quên mất.
-
-Một vài sợi tóc đen mềm mại rơi xuống bên má.
-
-Và đôi mắt ấy…
-
-Đang nhìn chàng không hề che giấu.
-
-Không có vẻ kính sợ quen thuộc mà các đệ tử thường dành cho tông chủ.
-
-Cũng không phải ánh nhìn cố ý lấy lòng.
-
-Chỉ có sự kinh ngạc thuần túy.
-
-Trong trẻo.
-
-Thẳng thắn.
-
-Như thể nàng vừa nhìn thấy một điều đẹp đẽ đến mức không biết phải phản ứng ra sao.
+Không có vẻ kính sợ thường thấy ở các đệ tử, cũng chẳng phải ánh mắt cố ý lấy lòng. Chỉ đơn thuần là sự kinh ngạc trước một điều quá đỗi đẹp đẽ.
 
 Thẩm Thanh Huyền thoáng thất thần.
 
-Một khoảnh khắc rất ngắn.
+Chỉ một khoảnh khắc ngắn ngủi, nhưng với người đã giữ tâm cảnh tĩnh lặng suốt hàng trăm năm, như vậy đã đủ khác thường.
 
-Ngắn đến mức ngay cả người ngoài cũng khó lòng nhận ra.
-
-Nhưng với một người đã quen giữ tâm cảnh tĩnh lặng suốt hàng trăm năm, khoảnh khắc ấy vẫn đủ khác thường.
-
-Chàng chợt nhận ra mình vẫn đang đỡ nàng.
-
-Bàn tay đặt sau lưng thiếu nữ truyền đến hơi ấm rất rõ.
-
-Không nóng.
-
-Không lạnh.
-
-Chỉ là hơi ấm của một người đang sống.
-
-Thẩm Thanh Huyền chậm rãi buông lỏng tay, nhưng vẫn giữ cánh tay nàng thêm một nhịp để chắc chắn nàng đã đứng vững.
-
-Sau đó mới lùi lại nửa bước.
-
-Khoảng cách vừa đủ để giữ lễ.
-
-Giọng chàng trầm thấp, thanh lãnh.
+Nhận ra mình vẫn đang đỡ nàng, chàng chậm rãi buông tay, đợi nàng đứng vững mới lùi lại nửa bước.
 
 "Đã tỉnh rồi?"
 
-Tô Tiểu Uyển chớp mắt.
+Giọng nói trầm thấp kéo Tô Tiểu Uyển trở về thực tại.
 
-Giọng nói ấy kéo nàng trở về thực tại.
+Nàng nhìn xuống, phát hiện tay mình vẫn đang nắm chặt vạt áo trắng của chàng.
 
-Nàng nhìn nam tử trước mặt.
+"Xin… xin lỗi!"
 
-Rồi nhìn vạt áo trắng mình vẫn đang nắm chặt.
+Nàng vội buông tay, mặt nóng bừng.
 
-Lại nhìn bàn tay vừa được chàng đỡ.
+Vạt áo trắng tinh đã bị nàng vò thành mấy nếp nhăn nhỏ.
 
-Một cảm giác xấu hổ muộn màng lập tức trào lên.
-
-Nàng vội buông tay.
-
-Trên vạt áo trắng tinh đã xuất hiện vài nếp nhăn nhỏ.
-
-Thẩm Thanh Huyền liếc qua.
-
-Bình thường, chàng hẳn sẽ lập tức dùng linh lực vuốt phẳng.
-
-Nhưng lúc này, chàng không làm vậy.
-
-Ánh mắt chàng trở lại trên gương mặt thiếu nữ.
+Thẩm Thanh Huyền liếc qua, nhưng không dùng linh lực vuốt phẳng như thói quen.
 
 "Thân thể vừa trải qua thiên kiếp, chưa nên đi lại vội vàng."
 
-Chàng dừng một chút.
+Chàng nhìn nàng, hỏi tiếp:
 
 "Vừa rồi có bị thương không?"
 
-Câu hỏi rất bình thường.
+Câu hỏi vừa thốt ra, chính chàng cũng thoáng ngạc nhiên.
 
-Giọng điệu cũng bình thường.
+Thân thể nàng đã được tái tạo, một cú vấp nhỏ vốn không thể gây thương tổn đáng kể. Điều ấy chàng biết rõ.
 
-Nhưng ngay khi hỏi xong, chính Thẩm Thanh Huyền lại thoáng nhận ra điều khác lạ.
-
-Chàng đã biết rõ thân thể nàng được tái tạo, vết thương cũ hầu như đã biến mất.
-
-Một cú vấp ngã nhỏ như vậy vốn không thể gây thương tổn đáng kể.
-
-Thế nhưng chàng vẫn hỏi.
+Vậy mà vẫn hỏi.
 
 Dường như trước cả khi kịp suy xét, chàng đã muốn biết nàng có đau hay không.
 
-Một làn gió nhẹ lướt qua hành lang.
+Thẩm Thanh Huyền không truy xét cảm giác ấy nữa.
 
-Hương hoa đào thoảng giữa hai người.
+Chàng chỉ lặng lẽ quan sát thiếu nữ trước mặt. Đôi mắt tím biếc vẫn còn vẻ bỡ ngỡ, ánh nhìn xa lạ như thể nàng vừa đặt chân đến thế giới này lần đầu tiên.
 
-Thẩm Thanh Huyền không tiếp tục truy xét cảm giác khác thường ấy.
+Nhớ đến dị tượng thần hồn đêm qua, chàng càng thêm nghi hoặc.
 
-Chàng chỉ lặng lẽ quan sát thiếu nữ trước mặt.
+Nhưng thiếu nữ vừa thoát khỏi một trận thiên kiếp gần như đoạt mạng. Hiện tại, điều nàng cần có lẽ không phải một cuộc tra hỏi.
 
-Đôi mắt tím biếc kia vẫn còn vẻ bỡ ngỡ.
-
-Rõ ràng nàng vừa tỉnh dậy, nhưng ánh nhìn lại giống như một người lần đầu tiên bước vào thế giới này.
-
-Chàng nhớ đến dấu hiệu thần hồn bất thường đêm qua.
-
-Trong lòng thoáng dấy lên nghi vấn.
-
-Nhưng chàng không hỏi ngay.
-
-Bởi thiếu nữ vừa thoát khỏi một trận thiên kiếp gần như đoạt mạng.
-
-Và hiện tại, điều nàng cần có lẽ không phải một cuộc tra xét.
-
-Mà là một chút thời gian để bình tâm.
-
-Thẩm Thanh Huyền hơi nghiêng người, nhường lối về phía căn phòng.
+Chàng nghiêng người, nhường lối vào phòng.
 
 "Vào trong ngồi trước đã."
 
