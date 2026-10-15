@@ -12,6 +12,7 @@
 - Y phục yêu thích: Màu vàng nhạt.
 
 ## Tu luyện và chuyên môn
+- Cảnh giới: Trúc Cơ cảnh tầng 9.
 - Thủy linh y tu, tu luyện thủy hệ và theo con đường y tu.
 - Là đệ tử của Dược Linh Đường, nơi đào tạo y tu, trồng thảo dược, luyện chế đan dược và chữa thương.
 
@@ -23,5 +24,5 @@
 - Có tình cảm với Tiêu Bắc Thần.
 
 ## Nguyên tắc bảo toàn thiết lập
-- Chưa xác định cảnh giới tu vi và các chi tiết khác về xuất thân; không tự ý bổ sung.
+- Chưa xác định các chi tiết khác về xuất thân; không tự ý bổ sung.
 - Không tự ý quyết định lời nói, hành động hay lựa chọn của Tô Tiểu Uyển thay cho người dùng.
