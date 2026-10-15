@@ -17,6 +17,9 @@
 ## Lý do gia nhập Thanh Vân Môn
 - Tiêu Bắc Thần vào Thanh Vân Môn vì mê đồ ăn do trưởng lão Dược Thiện Đường chế biến.
 
+## Tu luyện
+- Cảnh giới: Kim Đan cảnh tầng 1.
+
 ## Tính cách
 - Vô tư, nhút nhát, ham ăn và thích ngủ.
 - Lười nhác, không quá chủ động trong việc tu luyện hay làm việc.
@@ -25,5 +28,5 @@
 - Khi bị mẹ là Lâm Thu Ý bắt gặp ở Cầu Tiên Thành, hắn đang xách nhiều đồ nhưng vẫn ham chơi. Lâm Thu Ý kéo tai đưa hắn về nhà, trách hắn lâu rồi không về thăm nhà; Viên Y Y đi theo.
 
 ## Nguyên tắc bảo toàn thiết lập
-- Chưa xác định cảnh giới tu vi, công pháp và tên cụ thể của thế gia họ Tiêu; không tự ý bổ sung.
+- Chưa xác định công pháp và tên cụ thể của thế gia họ Tiêu; không tự ý bổ sung.
 - Không tự ý đặt ra quan hệ tình cảm hay vai trò cốt truyện khác ngoài những gì đã được xác lập.
