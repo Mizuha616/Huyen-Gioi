@@ -4,2559 +4,1169 @@
 
 # Chương 7: Kiếm Tâm Hộ Uyển
 
-*Thanh Vân Môn — Một tháng sau.*
+### I. Người đến từ Tu Trúc Đường
 
-## I. Người đến từ Tu Trúc Đường
+Một tháng sau khi chuyển đến Thanh Huyền Phong, Tô Tiểu Uyển vẫn dừng ở Luyện Khí tầng một.
 
-Một tháng trôi qua kể từ ngày Tô Tiểu Uyển chuyển đến Thanh Huyền Phong.
+Nàng ngồi trong Lê Hoa Viện, chăm chú nhìn đốm linh quang trên đầu ngón tay.
 
-Mùa hạ đã bắt đầu ghé qua những dãy núi của Thanh Vân Môn.
+Đốm sáng run rẩy một lát rồi tắt phụt.
 
-Nắng sớm trải dài trên những mái ngói lưu ly. Dưới chân núi, biển mây trắng cuộn lên từng lớp, thỉnh thoảng có vài con linh điểu sải cánh lướt qua.
-
-Trong Lê Hoa Viện, những cánh hoa cuối mùa vẫn còn vương trên nền đá xanh.
-
-Tô Tiểu Uyển ngồi trước bàn, chăm chú nhìn một đốm sáng xanh nhạt đang lơ lửng trên đầu ngón tay.
-
-Đốm sáng ấy chỉ lớn bằng hạt đậu.
-
-Nó run rẩy một lát.
-
-Rồi phụt tắt.
-
-"..."
-
-Nàng nhìn đầu ngón tay trống không, thở dài.
-
-"Lại thất bại rồi."
+“Lại hỏng rồi…”
 
 Đây đã là lần thứ mười ba trong buổi sáng.
 
-Suốt một tháng qua, dưới sự chỉ dạy của Thẩm Thanh Huyền, nàng cuối cùng cũng có thể cảm ứng linh khí trong thiên địa, miễn cưỡng dẫn được một chút linh lực vào kinh mạch.
+Thân thể Vô Ưu từng Trúc Cơ thất bại, kinh mạch bị tổn thương, muốn tu luyện trở lại không phải chuyện dễ dàng. Thẩm Thanh Huyền đã điều dưỡng căn cơ cho nàng suốt một tháng, nhưng tiến triển vẫn chậm.
 
-Chỉ là tu vi vẫn dừng ở Luyện Khí tầng một.
+May mà hắn chưa từng thúc ép.
 
-Thân thể này từng trải qua một lần Trúc Cơ thất bại, căn cơ bị tổn thương không nhẹ. Dẫu được Thẩm Thanh Huyền điều dưỡng, việc tu luyện của nàng vẫn chậm hơn những đệ tử bình thường.
+*“Tu hành phải từng bước cho vững. Không cần tranh hơn thua với ai.”*
 
-May mà sư tôn chưa từng thúc ép.
+Nhờ vậy, Tô Tiểu Uyển cũng không quá nôn nóng.
 
-Hắn chỉ nói:
+Huống hồ, nàng rất thích những buổi học ở thư phòng sư tôn.
 
-"Tu hành không phải chuyện tranh hơn thua trong một sớm một chiều. Ngươi cứ tiến từng bước cho vững."
+Ban đầu, nàng luôn sợ hỏi những điều quá ngốc nghếch. Sau này mới phát hiện hắn có thể kiên nhẫn giải thích một vấn đề nhiều lần, chỉ cần nàng thực sự muốn hiểu.
 
-Vì thế, Tô Tiểu Uyển cũng không quá nôn nóng.
+Nàng cũng dần quen với những thói quen nhỏ của hắn. Sư tôn thích trà thanh nhạt, thư phòng luôn ngăn nắp. Khi nghe nàng đặt câu hỏi kỳ lạ, hắn thường hơi nhướng mày.
 
-Nàng tin chỉ cần chăm chỉ, sớm muộn gì mình cũng sẽ học được.
+Nàng rất thích biểu cảm ấy.
 
-Huống hồ...
+Nghĩ đến đây, Tô Tiểu Uyển bật cười.
 
-Nàng hơi nghiêng đầu, khóe môi bất giác cong lên.
+Đúng lúc đó, bên ngoài có tiếng gọi:
 
-Mỗi buổi chiều đều có sư tôn đích thân dạy học.
+“Vô Ưu sư muội?”
 
-Nghĩ đến đây, nàng lại cảm thấy cuộc sống hiện tại cũng không tệ.
+Nàng đứng dậy ra mở cổng.
 
-Một tháng qua, nàng đã dần quen với nếp sinh hoạt trên Thanh Huyền Phong.
+Một thiếu nữ mặc váy hồng nhạt đang đứng bên ngoài, trên tay cầm hộp điểm tâm sơn đỏ.
 
-Buổi sáng, nàng tự đọc sách, luyện tập những pháp thuật cơ bản.
+“Vô Ưu, cuối cùng cũng gặp được muội.”
 
-Buổi chiều, sau khi sư tôn xử lý xong tông vụ, nàng mới ôm sách đến thư phòng.
+Tô Tiểu Uyển ngập ngừng.
 
-Có hôm hắn bận đến muộn, sẽ sai đệ tử trực viện mang lời nhắn đến.
+“Vị sư tỷ này là…”
 
-Có hôm tông vụ không nhiều, nàng vừa đến đã thấy hắn ngồi bên bàn trà, quyển sách dành cho nàng được đặt sẵn bên cạnh.
+Nụ cười của thiếu nữ thoáng khựng lại.
 
-Nàng cũng dần biết thêm những thói quen nhỏ của hắn.
+“Ta là Cố Tuyết Dao.”
 
-Sư tôn thích trà thanh nhạt, không thích hương liệu quá nồng.
+Tô Tiểu Uyển lập tức nhớ đến lời Diệp Vô Trần.
 
-Khi đọc công văn, hắn thường đặt ngón tay lên thành chén, nhưng chưa chắc đã uống.
+Cố Tuyết Dao, Đường Minh Hy và Vô Ưu từng cùng nhau lưu lạc, sau đó được ông nhận làm đệ tử.
 
-Hắn rất chú trọng sạch sẽ, thư phòng lúc nào cũng ngăn nắp.
+Nàng vội cúi người.
 
-Đặc biệt, mỗi khi nàng đặt ra một câu hỏi quá kỳ lạ, hắn thường hơi nhướng mày trước khi trả lời.
+“Vô Ưu bái kiến Cố sư tỷ. Muội không nhớ chuyện trước kia, mong tỷ đừng trách.”
 
-Tô Tiểu Uyển đã học được cách nhận biết biểu cảm ấy.
+“Chúng ta lớn lên cùng nhau, đừng khách sáo như thế.”
 
-Nó có nghĩa là sư tôn đang nghĩ xem nên giải thích thế nào cho một tiểu đồ đệ chẳng hiểu gì.
+Cố Tuyết Dao nắm tay nàng, dịu dàng mỉm cười.
 
-Nghĩ đến đó, nàng không nhịn được mà bật cười.
+Nhưng khi bước vào Lê Hoa Viện, ánh mắt nàng ta không giấu nổi sự kinh ngạc.
 
-Đúng lúc ấy, ngoài cổng viện vang lên tiếng gọi.
+Tiểu viện rộng rãi, thanh nhã, linh khí dồi dào. Một nơi như vậy, không phải đệ tử nội môn nào cũng có cơ hội được ở.
 
-"Vô Ưu sư muội?"
+Vậy mà Vô Ưu, người vừa Trúc Cơ thất bại, lại được tông chủ đích thân thu nhận.
 
-Tô Tiểu Uyển ngẩng đầu.
+Trong lòng Cố Tuyết Dao dâng lên cảm giác bất bình.
 
-Một giọng nữ dịu dàng truyền đến.
+Ngày trước, ba người cùng một thân phận. Vì sao bây giờ Vô Ưu được ở trên Thanh Huyền Phong, còn nàng vẫn chỉ là đệ tử Tu Trúc Đường?
 
-"Muội có trong viện không?"
+Nàng ta giấu suy nghĩ ấy, đặt hộp điểm tâm lên bàn.
 
-Nàng vội thu hồi chút linh khí còn sót lại, đứng dậy bước ra.
+“Ta nhớ muội rất thích bánh hoa quế nên tự tay làm một ít.”
 
-Ngoài cổng là một thiếu nữ mặc váy lụa màu hồng nhạt.
+Tô Tiểu Uyển mở hộp, vui vẻ reo lên:
 
-Dung mạo nàng ta thanh tú, mái tóc đen được búi gọn bằng một cây trâm ngọc. Trên môi luôn mang theo nụ cười mềm mại, ánh mắt dịu dàng, cử chỉ đoan trang.
+“Thơm quá!”
 
-Trong tay nàng ta cầm một hộp thức ăn bằng gỗ sơn đỏ.
+“Muội thích là tốt rồi.”
 
-Thấy Tô Tiểu Uyển xuất hiện, thiếu nữ lập tức mỉm cười.
+Cố Tuyết Dao nhìn nàng một lát rồi nói tiếp:
 
-"Vô Ưu, cuối cùng cũng gặp được muội."
+“Thật ra, tỷ còn có chuyện muốn nhờ.”
 
-Tô Tiểu Uyển ngẩn người.
+“Chuyện gì vậy ạ?”
 
-"Vị sư tỷ này là..."
-
-Nụ cười trên môi người kia thoáng khựng.
-
-Nhưng rất nhanh đã trở lại như cũ.
-
-"Ta là Cố Tuyết Dao."
-
-Nàng ta tiến lên nửa bước.
-
-"Muội thật sự không nhớ ta sao?"
-
-Tô Tiểu Uyển nhìn nàng ta một lát, rồi chợt nhớ đến lời Diệp Vô Trần từng kể.
-
-Đường Minh Hy.
-
-Cố Tuyết Dao.
-
-Vô Ưu.
-
-Ba người từng cùng nhau trải qua những ngày tháng lưu lạc đầu đường xó chợ, sau đó được Diệp Vô Trần đưa về Thanh Vân Môn.
-
-Nàng lập tức cúi người.
-
-"Thì ra là Cố sư tỷ. Vô Ưu thất lễ rồi."
-
-Cố Tuyết Dao nhìn động tác khách sáo ấy.
-
-Một cảm giác khó chịu thoáng dâng lên trong lòng.
-
-Trước kia Vô Ưu tuy ít nói, nhưng chưa từng dùng giọng điệu xa lạ như vậy với nàng.
-
-Bây giờ, chỉ mới được tông chủ thu nhận một tháng, ngay cả cách nói chuyện cũng trở nên khác trước.
-
-Tuy nhiên, Tuyết Dao không để lộ suy nghĩ ấy.
-
-Nàng ta nhẹ nhàng nắm lấy tay Vô Ưu.
-
-"Đừng khách sáo như thế. Chúng ta lớn lên cùng nhau, hà tất phải xa lạ?"
-
-Tô Tiểu Uyển hơi bất ngờ trước sự thân mật đột ngột, nhưng vẫn mỉm cười.
-
-"Muội không nhớ chuyện trước kia, mong sư tỷ đừng để bụng."
-
-"Ta biết."
-
-Cố Tuyết Dao thở dài.
-
-"Nghe tin muội gặp chuyện trong lúc Trúc Cơ, ta lo lắng lắm. Sau đó lại nghe muội chuyển đến Thanh Huyền Phong, ta vẫn muốn đến thăm, chỉ sợ làm phiền muội tu luyện."
-
-Nàng ta nhìn quanh tiểu viện.
-
-"Không ngờ nơi này lại đẹp đến thế."
-
-Tô Tiểu Uyển gật đầu.
-
-"Muội cũng rất thích nơi này."
-
-Cố Tuyết Dao nhìn hồ nước, những gốc lê cổ thụ và dãy hành lang thanh nhã.
-
-Từng viên gạch, từng chiếc đèn treo nơi mái hiên đều tinh xảo.
-
-Linh khí trong viện còn đậm đặc hơn Tu Trúc Đường rất nhiều.
-
-Một nơi như thế, ngay cả đệ tử nội môn cũng không dễ có được.
-
-Vậy mà Vô Ưu, kẻ từng Trúc Cơ thất bại, lại được một mình ở đây.
-
-Bàn tay cầm hộp thức ăn của nàng ta bất giác siết chặt.
-
-Nhưng khi quay lại, trên mặt nàng ta vẫn là nụ cười dịu dàng.
-
-"Ta có làm ít bánh hoa quế. Nhớ trước kia muội rất thích, nên mang đến cho muội nếm thử."
-
-Tô Tiểu Uyển nhìn hộp bánh.
-
-Đôi mắt lập tức sáng lên.
-
-"Bánh hoa quế ạ?"
-
-"Ừ."
-
-Cố Tuyết Dao mỉm cười.
-
-"Ta tự tay làm đấy."
-
-Nàng ta mở nắp hộp.
-
-Bên trong là những chiếc bánh nhỏ màu vàng nhạt, xếp ngay ngắn trên lớp giấy lót. Mùi hoa quế thoảng ra, thanh ngọt dễ chịu.
-
-Tô Tiểu Uyển nhìn đến vui vẻ.
-
-"Thơm quá!"
-
-Cố Tuyết Dao quan sát vẻ mặt nàng, ánh mắt thoáng động.
-
-"Muội thích là tốt rồi."
-
-Nàng ta ngừng một lát.
-
-"Thật ra, ta còn có một chuyện muốn nhờ muội."
-
-Tô Tiểu Uyển ngẩng đầu.
-
-"Chuyện gì vậy ạ?"
-
-Cố Tuyết Dao khép nắp hộp bánh.
-
-"Ta nghe nói Thẩm tông chủ đã thu nhận muội làm đệ tử thân truyền."
-
-"Dạ, đúng vậy."
-
-"Muội thật có phúc."
-
-Giọng nàng ta dịu dàng.
-
-"Tông chủ tu vi thâm hậu, lại rất ít khi đích thân thu đồ đệ. Có thể được người chỉ dạy, đúng là cơ duyên hiếm có."
-
-Tô Tiểu Uyển nghĩ đến những buổi chiều trong thư phòng, không nhịn được mà mỉm cười.
-
-"Sư tôn dạy rất dễ hiểu ạ."
-
-Nụ cười của Cố Tuyết Dao thoáng cứng lại.
-
-*Sư tôn.*
-
-Hai tiếng ấy được Vô Ưu gọi tự nhiên đến mức khiến nàng ta khó chịu.
-
-Trong khi bản thân nàng ta, ngay cả cơ hội gặp mặt tông chủ cũng rất ít.
-
-Cố Tuyết Dao hít nhẹ một hơi.
-
-"Ta cũng muốn đến bái kiến tông chủ, nhân tiện cảm tạ người đã chăm sóc muội."
-
-Nàng ta nâng hộp bánh lên.
-
-"Hay muội dẫn ta đến gặp người một lát? Ta chuẩn bị cả phần điểm tâm này để tỏ lòng kính trọng."
+“Nghe nói tông chủ đã nhận muội làm đệ tử thân truyền. Tỷ muốn đến bái kiến người, nhân tiện cảm tạ người đã chăm sóc muội.”
 
 Tô Tiểu Uyển hơi do dự.
 
-"Sư tôn thường bận tông vụ..."
+“Sư tôn thường rất bận…”
 
-"Ta biết."
+“Tỷ chỉ hành lễ rồi đi. Muội dẫn tỷ đến gặp người một lát, được không?”
 
-Cố Tuyết Dao lập tức tiếp lời.
+Cố Tuyết Dao nhìn nàng, giọng dịu xuống:
 
-"Ta chỉ muốn hành lễ, nói đôi câu rồi đi. Sẽ không làm phiền lâu đâu."
+“Chúng ta quen biết từ nhỏ. Chút chuyện ấy, muội cũng không giúp tỷ sao?”
 
-Nàng ta nhìn Vô Ưu, ánh mắt mang theo chút mong đợi.
+Tô Tiểu Uyển không nhớ tình nghĩa trước kia, nhưng nàng biết Diệp Vô Trần rất yêu thương cả ba đứa trẻ.
 
-"Chúng ta quen biết từ nhỏ. Chẳng lẽ chút việc ấy muội cũng không giúp tỷ?"
+Hơn nữa, lát nữa nàng cũng phải đến thư phòng học.
 
-Tô Tiểu Uyển nhìn nàng ta.
+“Vậy tỷ đi cùng muội nhé. Nhưng nếu sư tôn đang bận, chúng ta không được làm phiền lâu đâu.”
 
-Nàng không nhớ chuyện trước kia.
-
-Nhưng nếu đúng như lời sư phụ Diệp Vô Trần kể, ba người từng nương tựa nhau từ thuở nhỏ.
-
-Đối phương chỉ muốn đến bái kiến tông chủ, dường như cũng không phải chuyện gì quá đáng.
-
-Huống hồ lát nữa chính nàng cũng phải đến thư phòng học.
-
-Nghĩ vậy, nàng nhẹ nhàng gật đầu.
-
-"Vậy sư tỷ đi cùng muội nhé. Nhưng nếu sư tôn đang bận, chúng ta không nên làm phiền người quá lâu."
-
-Cố Tuyết Dao lập tức mỉm cười.
-
-"Đương nhiên."
-
-Trong lòng nàng ta, một sự vui mừng khó che giấu chậm rãi dâng lên.
-
-Bước đầu tiên đã thành công.
-
-***
-
-## II. Một hộp điểm tâm, hai lòng người
-
-Buổi chiều.
-
-Trong thư phòng Thanh Huyền Phong, Thẩm Thanh Huyền đang xem xét những ngọc giản vừa được chuyển đến từ chính điện.
-
-Trên án thư là một chồng công văn.
-
-Hắn đã xử lý gần hết tông vụ trong ngày, chỉ còn vài việc liên quan đến việc điều động linh thạch và sửa chữa trận pháp bảo vệ các đỉnh núi.
-
-Một làn gió nhẹ thổi qua cửa sổ.
-
-Thẩm Thanh Huyền đặt bút xuống, vừa định mở ngọc giản tiếp theo thì nghe tiếng bước chân ngoài hành lang.
-
-Ngay sau đó là giọng nói trong trẻo quen thuộc.
-
-"Sư tôn!"
-
-Khóe môi hắn thoáng cong lên.
-
-Nhưng khi ngẩng đầu, hắn lại nghe thêm một giọng nữ khác.
-
-"Đệ tử Cố Tuyết Dao, bái kiến tông chủ."
-
-Nét cười nơi khóe môi lập tức nhạt đi.
-
-Thẩm Thanh Huyền nhìn về phía cửa.
-
-Tô Tiểu Uyển đang đứng bên cạnh một thiếu nữ mặc váy hồng.
-
-Người kia cúi đầu hành lễ, dáng vẻ cung kính.
-
-Tô Tiểu Uyển cũng vội cúi người.
-
-"Sư tôn, đây là Cố sư tỷ ở Tu Trúc Đường. Hôm nay sư tỷ đến thăm con, muốn nhân tiện bái kiến người ạ."
-
-Thẩm Thanh Huyền nhìn Cố Tuyết Dao.
-
-Hắn có chút ấn tượng về cái tên này.
-
-Một trong ba đứa trẻ được Diệp Vô Trần đưa về tông môn năm xưa.
-
-"Ngươi đến thăm Vô Ưu?"
-
-Cố Tuyết Dao khẽ ngẩng đầu.
-
-"Vâng, tông chủ."
-
-Nàng ta mỉm cười dịu dàng.
-
-"Đệ tử và Vô Ưu vốn có tình nghĩa từ nhỏ. Nghe nói muội ấy đã được người thu nhận, trong lòng rất vui mừng. Hôm nay đặc biệt đến thăm, tiện thể mang chút điểm tâm do chính tay đệ tử chuẩn bị."
-
-Nàng ta nâng hộp thức ăn lên.
-
-"Đệ tử nghe nói tông chủ gần đây bận rộn tông vụ, không dám mang vật gì quý giá, chỉ có chút bánh hoa quế, mong người đừng chê."
-
-Thẩm Thanh Huyền đưa mắt nhìn hộp bánh.
-
-Rồi lại nhìn nàng ta.
-
-"Đặt xuống đi."
-
-Cố Tuyết Dao thoáng vui mừng.
-
-Nàng ta vội vàng bước đến, đặt hộp bánh lên bàn trà.
-
-"Đa tạ tông chủ."
-
-Thẩm Thanh Huyền không đáp.
-
-Hắn chỉ khẽ gật đầu, sau đó cúi xuống xem ngọc giản trong tay.
-
-Một lát sau, thấy người kia vẫn đứng nguyên, hắn mới ngước mắt.
-
-"Còn chuyện gì?"
-
-Cố Tuyết Dao hơi khựng.
-
-"Đệ tử..."
-
-Nàng ta nhìn Tô Tiểu Uyển, rồi lại nhìn hắn.
-
-"Đệ tử từ lâu đã ngưỡng mộ tu vi của tông chủ. Hôm nay may mắn được diện kiến, có vài điều trong tu luyện muốn thỉnh giáo. Không biết người có thể..."
-
-"Không cần."
-
-Thẩm Thanh Huyền ngắt lời.
-
-Cố Tuyết Dao sững người.
-
-Hắn bình thản nói tiếp:
-
-"Ngươi là đệ tử Tu Trúc Đường. Có chuyện không hiểu, cứ hỏi Diệp Vô Trần."
-
-Nụ cười trên môi nàng ta thoáng cứng lại.
-
-"Nhưng Diệp trưởng lão thường bận rộn, đệ tử lại nghe nói..."
-
-"Vô Trần là sư phụ ngươi."
-
-Thẩm Thanh Huyền đặt ngọc giản xuống.
-
-"Hắn có trách nhiệm chỉ dạy ngươi."
-
-Cố Tuyết Dao cắn nhẹ môi.
-
-"Đệ tử hiểu. Chỉ là..."
-
-Nàng ta không cam tâm.
-
-Đã vất vả tìm được cơ hội bước vào thư phòng của người này, nàng ta không muốn rời đi dễ dàng như vậy.
-
-Ánh mắt nàng ta lướt qua Tô Tiểu Uyển.
-
-Một ý nghĩ chợt lóe lên.
-
-"Vô Ưu."
-
-Nàng ta quay sang, dịu dàng nói:
-
-"Chúng ta đã lâu không gặp. Hay hôm nay tỷ ở lại cùng muội một lát? Đợi muội học xong, hai tỷ muội còn có thể trò chuyện."
-
-Tô Tiểu Uyển hơi ngẩn ra.
-
-"Sư tỷ..."
-
-Nàng chưa kịp trả lời, giọng Thẩm Thanh Huyền đã vang lên.
-
-"Cố Tuyết Dao."
-
-Không cao.
-
-Nhưng khiến người nghe bất giác đứng thẳng.
-
-Cố Tuyết Dao vội vàng quay lại.
-
-"Đệ tử có mặt."
-
-Thẩm Thanh Huyền nhìn nàng ta.
-
-"Ngươi đến thăm Vô Ưu, ta đã cho phép. Điểm tâm cũng đã nhận."
-
-Hắn khẽ đặt ngọc giản xuống án thư.
-
-"Ta còn tông vụ phải xử lý, lát nữa sẽ dạy nàng tu luyện."
-
-Cố Tuyết Dao cúi đầu.
-
-"Đệ tử biết, nhưng..."
-
-"Còn đứng đấy làm gì, không mau lui xuống?"
-
-Sắc mặt Cố Tuyết Dao lập tức trắng bệch.
-
-Nàng ta ngẩng đầu, dường như không ngờ hắn lại nói thẳng đến vậy.
-
-"Tông chủ..."
-
-Đôi mắt xanh biếc của Thẩm Thanh Huyền bình thản nhìn nàng ta.
-
-"Hay còn cần ta nói lần thứ hai?"
-
-Một luồng áp lực vô hình khiến Cố Tuyết Dao lập tức im bặt.
-
-Nàng ta không dám nói thêm.
-
-"Đệ tử... cáo lui."
-
-Nàng ta cúi người hành lễ.
-
-Tô Tiểu Uyển đứng bên cạnh, có chút ngượng ngùng.
-
-"Cố sư tỷ, vậy để muội..."
-
-"Không cần đâu."
-
-Cố Tuyết Dao nhanh chóng nở nụ cười.
-
-"Muội cứ ở lại học với tông chủ. Tỷ tự về được."
-
-Nàng ta nhìn Tô Tiểu Uyển, ánh mắt vẫn dịu dàng như trước.
-
-"Nhớ ăn bánh nhé. Tỷ đã làm cả buổi sáng đấy."
-
-Tô Tiểu Uyển gật đầu.
-
-"Dạ, cảm ơn sư tỷ."
+“Đương nhiên.”
 
 Cố Tuyết Dao mỉm cười.
 
-Rồi xoay người rời khỏi thư phòng.
+Bàn tay nàng ta khẽ siết quai hộp điểm tâm.
 
-Cho đến khi đi qua rừng trúc, nụ cười ấy mới hoàn toàn biến mất.
+---
 
-Nàng ta siết chặt bàn tay giấu trong tay áo.
+### II. Hộp bánh hoa quế
 
-Móng tay gần như bấm vào lòng bàn tay.
+Buổi chiều, Thẩm Thanh Huyền đang xem ngọc giản trong thư phòng thì nghe tiếng gọi quen thuộc.
 
-Rõ ràng đều là đệ tử Thanh Vân Môn.
+“Sư tôn!”
 
-Rõ ràng năm xưa cả ba cùng được Diệp Vô Trần đưa về.
+Hắn ngẩng đầu.
 
-Vì sao Vô Ưu có thể ngồi bên cạnh người ấy?
+Tô Tiểu Uyển đứng ngoài cửa, bên cạnh là một thiếu nữ áo hồng.
 
-Còn nàng, ngay cả ở lại thêm một lát cũng không được phép?
+“Đệ tử Cố Tuyết Dao bái kiến tông chủ.”
 
-*Thẩm Thanh Huyền...*
+Thẩm Thanh Huyền nhìn nàng ta.
 
-Trong lòng Cố Tuyết Dao vừa tủi nhục, vừa không cam tâm.
+“Có chuyện gì?”
 
-Nhưng rồi nàng ta nhớ đến hộp bánh đã đặt trên bàn trà.
+“Đệ tử đến thăm Vô Ưu, nhân tiện mang chút điểm tâm tự tay chuẩn bị, mong tông chủ nhận cho.”
 
-Bước chân chậm rãi dừng lại.
+Cố Tuyết Dao đặt hộp bánh lên bàn, cử chỉ hết sức cung kính.
 
-Một tia hy vọng lại xuất hiện.
+Thẩm Thanh Huyền gật đầu.
 
-Chỉ cần hắn ăn bánh.
+“Để đó đi.”
 
-Chỉ cần dược lực phát tác.
+Nàng ta không rời đi ngay.
 
-Nàng ta vẫn còn cơ hội.
+“Đệ tử còn có vài điều tu luyện muốn thỉnh giáo. Không biết tông chủ có thể…”
 
-Cố Tuyết Dao quay đầu nhìn về phía chính viện.
+“Ngươi là đệ tử Tu Trúc Đường. Có điều gì không hiểu, cứ hỏi Diệp Vô Trần.”
 
-Sau một lúc, nàng ta mới chậm rãi rời đi.
+“Nhưng Diệp trưởng lão thường bận rộn…”
+
+“Vô Trần là sư phụ ngươi. Hắn có trách nhiệm chỉ dạy.”
+
+Cố Tuyết Dao cúi đầu, không giấu được thất vọng.
+
+Nàng ta đã khó khăn lắm mới tìm được cơ hội bước vào thư phòng này.
+
+Ánh mắt nàng ta chuyển sang Tô Tiểu Uyển.
+
+“Vô Ưu, chúng ta đã lâu không gặp. Hay hôm nay tỷ ở lại chờ muội học xong, rồi cùng trò chuyện?”
+
+Tô Tiểu Uyển chưa kịp đáp, Thẩm Thanh Huyền đã lên tiếng:
+
+“Cố Tuyết Dao.”
+
+“Đệ tử có mặt.”
+
+“Ta còn tông vụ, lát nữa phải dạy Vô Ưu. Ngươi lui xuống đi.”
+
+Cố Tuyết Dao tái mặt.
+
+Nàng ta biết mình không còn lý do ở lại, đành cúi đầu cáo lui.
+
+Trước khi đi, nàng ta vẫn mỉm cười với Tô Tiểu Uyển.
+
+“Nhớ ăn bánh nhé. Tỷ làm cả buổi sáng đấy.”
+
+“Dạ, cảm ơn sư tỷ.”
+
+Ra khỏi chính viện, nụ cười của Cố Tuyết Dao lập tức biến mất.
+
+Nàng ta không hiểu vì sao Vô Ưu có thể tùy ý ra vào thư phòng, còn mình ngay cả một câu thỉnh giáo cũng bị từ chối.
+
+Nhưng nghĩ đến hộp bánh đã để lại, lòng nàng ta lại xuất hiện một tia hy vọng.
+
+Chỉ cần Thẩm Thanh Huyền ăn bánh.
+
+Khi dược lực phát tác, nàng ta sẽ có cơ hội thực hiện điều mình mong muốn.
+
+Cố Tuyết Dao không biết rằng người sắp ăn bánh không phải hắn.
 
 ***
 
-Trong thư phòng, Tô Tiểu Uyển khẽ nhìn về phía cửa.
+Trong thư phòng, Tô Tiểu Uyển ngồi xuống, lấy bài tập ra.
 
-"Sư tôn..."
+“Sư tôn không thích Cố sư tỷ ạ?”
 
-Thẩm Thanh Huyền ngước mắt.
+“Ta không quen nàng ta.”
 
-"Ừ?"
+“Nhưng sư tỷ cũng là đệ tử Thanh Vân Môn mà.”
 
-"Người không thích Cố sư tỷ ạ?"
+“Thanh Vân Môn có rất nhiều đệ tử. Không phải ai cũng có thể tùy ý ở lại thư phòng của ta.”
 
-Hắn nhìn nàng.
+Tô Tiểu Uyển suy nghĩ rồi gật đầu.
 
-"Vì sao hỏi vậy?"
+“Dạ, con hiểu.”
 
-"Vừa rồi người có vẻ không muốn sư tỷ ở lại."
+Thẩm Thanh Huyền nhận lấy bài tập của nàng.
 
-Thẩm Thanh Huyền đặt ngọc giản xuống.
+“Đưa ta xem hôm qua ngươi học được gì.”
 
-"Ta không quen nàng ta."
+Trong lúc hắn đọc, Tô Tiểu Uyển mở hộp bánh.
 
-Tô Tiểu Uyển chớp mắt.
+Mùi hoa quế thoảng ra, khiến nàng không nhịn được mà nhìn thêm mấy lần.
 
-"Nhưng nàng ấy cũng là đệ tử Thanh Vân Môn mà."
+“Sư tôn, người có ăn bánh không ạ?”
 
-"Thanh Vân Môn có rất nhiều đệ tử."
+“Không.”
 
-Hắn nói bình thản.
+“Nhưng Cố sư tỷ làm tặng người mà…”
 
-"Không phải ai cũng có thể tùy ý ở lại thư phòng của ta."
+“Ta không thích nhận những thứ cố ý mang đến lấy lòng.”
 
-Nàng suy nghĩ một lát.
+Tô Tiểu Uyển nhìn hộp bánh, rồi ngẩng đầu.
 
-Rồi gật đầu.
+“Vậy… Tiểu Uyển ăn được không ạ?”
 
-"Dạ, con hiểu rồi."
+Thẩm Thanh Huyền nhìn vẻ mặt mong đợi của nàng, khóe môi thoáng cong.
 
-Thẩm Thanh Huyền nhìn nàng.
+“Ngươi thích thì ăn đi.”
 
-"Ngươi đã hoàn thành bài tập hôm qua chưa?"
+“Cảm ơn sư tôn!”
 
-Tô Tiểu Uyển lập tức ngồi ngay ngắn.
+Nàng lấy một chiếc bánh, vui vẻ cắn thử.
 
-"Dạ, rồi ạ!"
+“Ngon thật!”
 
-"Đưa ta xem."
+Thẩm Thanh Huyền tiếp tục xem bài.
 
-Nàng vội vàng lấy quyển sách trong tay áo trữ vật ra.
+Đến khi nàng định lấy chiếc thứ ba, hắn mới nhắc:
 
-Hắn nhận lấy, cúi xuống xem.
+“Đừng ăn quá nhiều, lát nữa còn dùng bữa tối.”
 
-Trong lúc ấy, Tô Tiểu Uyển chợt nhìn thấy hộp bánh hoa quế trên bàn.
+“Dạ, chiếc cuối thôi!”
 
-Nàng mở nắp.
+Hắn bất đắc dĩ lắc đầu.
 
-Mùi hương thanh ngọt lập tức lan ra.
+Một buổi chiều bình thường như bao buổi chiều khác.
 
-"Sư tôn."
+Chẳng ai biết chỉ ít lâu sau, hắn sẽ ước mình chưa từng cho phép nàng ăn chiếc bánh ấy.
 
-"Ừ?"
+---
 
-"Người có muốn ăn bánh không ạ?"
+### III. Một câu hỏi sinh tử
 
-Thẩm Thanh Huyền không ngẩng đầu.
+Thẩm Thanh Huyền vừa xem xong bài tập thì phát hiện Tô Tiểu Uyển ngồi yên bất thường.
 
-"Không."
+Hai má nàng đỏ bừng.
 
-"Nhưng Cố sư tỷ nói tự tay làm để tặng người mà..."
+“Tiểu Uyển, ngươi sao vậy?”
 
-Hắn hơi dừng bút.
+“Dạ… con thấy hơi nóng.”
 
-"Ta không có thói quen dùng đồ người khác cố ý mang đến lấy lòng."
+Nàng đưa tay lên trán, vẻ mặt khó chịu.
 
-Tô Tiểu Uyển chớp mắt.
+Thẩm Thanh Huyền lập tức nắm cổ tay nàng, đưa linh lực vào kiểm tra.
 
-Nàng nhìn hộp bánh.
+Chỉ một thoáng, sắc mặt hắn thay đổi.
 
-Rồi nhìn sư tôn.
+Linh lực trong kinh mạch nàng đang hỗn loạn. Một luồng dược tính xa lạ kích thích khí huyết, quấy nhiễu thần trí, khiến nàng dần mất khả năng khống chế bản thân.
 
-"Vậy... Tiểu Uyển có thể ăn không ạ?"
+“Ngươi đã ăn gì?”
 
-Thẩm Thanh Huyền cuối cùng cũng ngẩng lên.
+Tô Tiểu Uyển cố nhớ.
 
-Đôi mắt tím biếc của nàng đang nhìn những chiếc bánh với vẻ mong đợi không giấu nổi.
+“Con ăn điểm tâm ở Lê Hoa Viện… rồi bánh của Cố sư tỷ…”
 
-Hắn nhớ đến chuyện nàng vốn thích bánh hoa quế.
+Thẩm Thanh Huyền nhìn hộp bánh.
 
-Khóe môi thoáng cong.
+Một chiếc bánh còn lại lập tức bay lên trước mặt hắn. Thần thức quét qua lớp linh mật bao quanh nhân bánh, phát hiện dược lực được giấu rất khéo.
 
-"Ngươi thích thì cứ ăn."
+Đó là một loại tà dược dùng để quấy nhiễu thần trí và khả năng tự chủ của người trúng thuốc.
 
-Tô Tiểu Uyển lập tức vui vẻ.
+Với tu vi của hắn, thứ này không khó hóa giải.
 
-"Thật ạ?"
+Nhưng Tô Tiểu Uyển chỉ có tu vi Luyện Khí tầng một. Kinh mạch nàng còn tổn thương sau lần Trúc Cơ thất bại.
 
-"Ừ."
+Dược lực này có thể lấy mạng nàng.
 
-"Vậy con cảm ơn sư tôn!"
+“Tiểu Uyển, đừng vận hành linh khí.”
 
-Nàng lấy một chiếc bánh nhỏ.
+Nàng ngẩng đầu, ánh mắt bắt đầu mơ hồ.
 
-Cắn thử.
+“Sư tôn…”
 
-Lớp vỏ mềm, nhân ngọt thanh, mùi hoa quế thoang thoảng.
+“Ngồi yên. Ta giải dược cho ngươi.”
 
-"Ngon quá..."
+Hắn đặt tay lên lưng nàng, dùng linh lực phong bế dược tính.
 
-Thẩm Thanh Huyền nhìn nàng một thoáng.
+Nhưng khi định đẩy phần thuốc còn lại ra ngoài, hắn lập tức nhận ra kinh mạch nàng quá yếu. Chỉ cần dùng lực mạnh một chút, chính linh lực của hắn cũng có thể khiến nàng bị thương.
 
-Thấy nàng ăn ngon lành, hắn cũng không nói thêm.
+Thẩm Thanh Huyền giảm lực, chậm rãi tách dược tính khỏi khí hải.
 
-Chỉ tiếp tục xem bài tập.
+Tô Tiểu Uyển cắn môi, toàn thân run rẩy.
 
-Một chiếc bánh.
+“Con đau…”
 
-Rồi chiếc thứ hai.
+Bàn tay nàng vô thức nắm chặt tay áo hắn.
 
-Đến khi Tô Tiểu Uyển đưa tay lấy chiếc thứ ba, hắn mới khẽ lên tiếng.
+Thẩm Thanh Huyền lập tức điều chỉnh linh lực.
 
-"Đừng ăn quá nhiều. Lát nữa còn phải dùng bữa tối."
+“Ta biết. Cố chịu một chút.”
 
-Nàng lập tức gật đầu.
+Nàng cố gắng ngẩng đầu.
 
-"Dạ, chiếc cuối thôi ạ."
+Đôi mắt tím biếc đã phủ một lớp nước.
 
-Thẩm Thanh Huyền bất đắc dĩ lắc đầu.
+“Sư tôn…”
 
-Hắn không biết rằng, chính khoảnh khắc tưởng như bình thường ấy sẽ khiến mình day dứt suốt những ngày sau.
+“Ta nghe.”
 
-***
+“Tiểu Uyển… có chết không ạ?”
 
-## III. Một chiếc bánh, hai ngày sinh tử
+Thẩm Thanh Huyền khựng lại.
 
-Buổi học hôm ấy bắt đầu muộn hơn thường lệ.
+Hắn nhớ đến lần đầu gặp nàng.
 
-Thẩm Thanh Huyền đã xem xong bài tập, phát hiện Tô Tiểu Uyển cuối cùng cũng hiểu được cách vận hành một vòng tiểu chu thiên cơ bản.
+Một thiếu nữ vừa trải qua tai nạn ở thế giới khác, tỉnh dậy trong thân thể xa lạ, không biết mình còn sống hay đã chết.
 
-Hắn đang định khen nàng đôi câu thì chợt nhận ra vẻ mặt nàng có chút khác thường.
+Nàng đã khó khăn lắm mới có thể thích nghi với nơi này.
 
-"Tiểu Uyển."
-
-"Dạ?"
-
-"Sao mặt ngươi đỏ vậy?"
-
-Tô Tiểu Uyển ngẩn ra.
-
-Nàng đưa tay chạm lên má.
-
-Quả thực có chút nóng.
-
-"Dạ... con không biết nữa."
-
-Nàng nghĩ ngợi.
-
-"Có lẽ trong phòng hơi nóng ạ?"
-
-Thẩm Thanh Huyền nhìn về phía cửa sổ.
-
-Gió núi đang thổi nhè nhẹ.
-
-Trong phòng hoàn toàn không nóng.
-
-Hắn khẽ nhíu mày.
-
-"Đưa tay đây."
-
-Tô Tiểu Uyển ngoan ngoãn đưa cổ tay ra.
-
-Thẩm Thanh Huyền đặt hai ngón tay lên mạch môn.
-
-Một luồng linh lực mỏng nhẹ đi vào kinh mạch nàng.
-
-Ngay khoảnh khắc ấy, ánh mắt hắn đột nhiên thay đổi.
-
-Không đúng.
-
-Linh lực trong cơ thể nàng đang hỗn loạn.
-
-Một luồng dược lực xa lạ đã len vào kinh mạch, không ngừng kích thích khí huyết, làm thần trí nàng dần trở nên mơ hồ.
-
-Thẩm Thanh Huyền lập tức ngẩng đầu.
-
-"Tiểu Uyển, ngươi đã ăn gì?"
-
-Nàng chớp mắt.
-
-"Dạ?"
-
-"Trước khi đến đây."
-
-"Con... chỉ ăn chút điểm tâm ở Lê Hoa Viện..."
-
-Nàng dừng lại.
-
-Rồi nhìn hộp bánh trên bàn.
-
-"Và bánh hoa quế của Cố sư tỷ..."
-
-Thẩm Thanh Huyền quay đầu.
-
-Ánh mắt hắn dừng trên hộp bánh.
-
-Trong khoảnh khắc ấy, sắc mặt hắn lạnh xuống.
-
-Hắn đưa tay.
-
-Một chiếc bánh còn lại lập tức bay lên, lơ lửng giữa không trung.
-
-Thần thức quét qua từng lớp bánh.
-
-Một tia dược lực cực kỳ mỏng, được bao bọc trong linh mật, dần hiện rõ dưới sự dò xét.
-
-Thẩm Thanh Huyền lập tức nhận ra.
-
-Đó là một loại dược vật có thể kích thích khí huyết, quấy nhiễu thần trí và khiến người trúng thuốc khó duy trì khả năng tự chủ.
-
-Đối với tu sĩ có tu vi cao, thứ ấy không khó hóa giải.
-
-Nhưng với một người vừa Trúc Cơ thất bại, kinh mạch tổn thương, hiện chỉ còn Luyện Khí tầng một...
-
-Sắc mặt hắn thoáng biến đổi.
-
-"Tiểu Uyển."
-
-"Dạ..."
-
-"Đừng vận hành linh khí."
-
-Nàng ngẩn ra.
-
-"Vì sao ạ?"
-
-"Nghe lời ta."
-
-Giọng hắn nghiêm túc hơn thường ngày.
-
-"Ngồi yên."
-
-Tô Tiểu Uyển lập tức nghe theo.
-
-Nhưng chỉ một lát sau, nàng bắt đầu cảm thấy khó chịu.
-
-Trong người nóng lên từng đợt.
-
-Tim đập nhanh.
-
-Những luồng linh khí vốn yên ổn trong kinh mạch bỗng trở nên hỗn loạn, như có thứ gì đó không ngừng thúc đẩy chúng chuyển động.
-
-Nàng ôm lấy ngực.
-
-"Sư tôn..."
-
-Thẩm Thanh Huyền lập tức đỡ lấy vai nàng.
-
-"Ta đây."
-
-"Tiểu Uyển... khó chịu quá..."
-
-Hắn đặt tay lên lưng nàng, truyền một luồng linh lực ôn hòa vào cơ thể.
-
-Chỉ một thoáng, hắn đã phong bế phần lớn dược lực.
-
-Nhưng khi định dẫn luồng thuốc còn lại ra ngoài, hắn phát hiện kinh mạch nàng yếu hơn dự tính.
-
-Nếu cưỡng ép giải trừ quá nhanh, linh lực của chính hắn có thể khiến kinh mạch nàng chịu tổn thương.
-
-Thẩm Thanh Huyền lập tức thay đổi phương pháp.
-
-Hắn khống chế linh lực đến mức cực kỳ tinh tế, chậm rãi tách từng tia dược lực ra khỏi khí hải của nàng.
-
-Tô Tiểu Uyển cắn chặt môi.
-
-Trán đã lấm tấm mồ hôi.
-
-"Sư tôn..."
-
-"Đừng sợ."
-
-Hắn nhìn nàng.
-
-"Ta đang giải dược cho ngươi."
-
-Nàng gật đầu.
-
-Nhưng chỉ một lúc sau, sắc mặt lại tái nhợt.
-
-Một cơn đau đột ngột truyền qua kinh mạch.
-
-Tô Tiểu Uyển khẽ run lên.
-
-Bàn tay vô thức nắm chặt góc áo trắng của hắn.
-
-"Sư tôn..."
-
-"Ừ."
-
-"Con đau..."
-
-Thẩm Thanh Huyền cảm thấy bàn tay mình hơi cứng lại.
-
-Hắn đã từng chữa thương cho không ít người.
-
-Từng đối diện với những thương tích nghiêm trọng hơn thế này.
-
-Nhưng khi nghe nàng khẽ nói một tiếng đau, trong lòng hắn lại xuất hiện cảm giác khó chịu khác thường.
-
-Hắn lập tức giảm lực đạo.
-
-"Ta biết."
-
-Giọng nói dịu xuống.
-
-"Ráng chịu một chút. Ta sẽ không để ngươi bị thương thêm."
-
-Tô Tiểu Uyển nhìn hắn.
-
-Đôi mắt tím biếc đã phủ một lớp hơi nước.
-
-Nàng dường như muốn nói gì đó, nhưng lại không đủ sức.
-
-Một lúc sau mới khẽ hỏi:
-
-"Sư tôn..."
-
-"Ta nghe."
-
-"Tiểu Uyển... có chết không ạ?"
-
-Bàn tay Thẩm Thanh Huyền thoáng dừng.
-
-Trong khoảnh khắc ấy, hắn nhớ đến những điều nàng từng kể.
-
-Một thế giới xa lạ.
-
-Một tai nạn.
-
-Một lần cầu sinh tuyệt vọng.
-
-Nàng đã phải trải qua biết bao bất an mới có thể đứng ở đây.
-
-Vậy mà hôm nay, chỉ vì một hộp bánh được mang đến bằng vẻ ngoài quan tâm, nàng lại phải hỏi câu ấy.
+Vậy mà bây giờ, ngay trước mặt hắn, nàng lại phải hỏi liệu mình có chết thêm lần nữa hay không.
 
 Thẩm Thanh Huyền nhìn thẳng vào mắt nàng.
 
-"Không."
+“Không.”
 
-Hắn nói rất rõ ràng.
+Giọng hắn rất chắc chắn.
 
-"Có ta ở đây, ngươi sẽ không chết."
+“Có ta ở đây, ngươi sẽ không chết.”
 
-Nàng nhìn hắn.
+Tô Tiểu Uyển nhìn hắn một lúc.
 
-Như thể chỉ cần nghe được câu nói ấy, mọi nỗi sợ đều có thể dịu xuống đôi chút.
+Rồi nàng khẽ gật đầu.
 
-Một lát sau, nàng khẽ gật đầu.
+“Dạ…”
 
-"Dạ..."
+Dường như chỉ cần nghe câu nói ấy, nàng đã có thể yên tâm giao phó mọi chuyện.
 
-Rồi đôi mắt chậm rãi khép lại.
+Nhưng ngay sau đó, bàn tay đang nắm áo hắn dần buông lỏng.
 
-Bàn tay đang nắm áo hắn cũng dần buông lỏng.
+“Tiểu Uyển?”
 
-"Tiểu Uyển?"
+Nàng không đáp.
 
-Không có tiếng đáp.
+Thẩm Thanh Huyền lập tức kiểm tra mạch tượng.
 
-Thẩm Thanh Huyền lập tức kiểm tra thần thức và mạch tượng.
+Dược lực đã được áp chế, nhưng thần hồn nàng chịu chấn động, thân thể không thể tiếp tục chống đỡ.
 
-Dược lực đã bị áp chế.
-
-Nhưng thần hồn nàng chịu chấn động, thân thể không thể tiếp tục chống đỡ.
-
-Nàng đã ngất đi.
+Nàng ngất đi.
 
 Hắn nhìn gương mặt tái nhợt trong lòng mình.
 
-Một cảm giác lạnh lẽo chậm rãi dâng lên.
-
-Hắn đã nhận lấy chiếc bánh ấy.
+Mới lúc nãy nàng còn cười vì ăn được bánh ngon.
 
 Chính hắn đã cho phép nàng ăn.
 
-Thẩm Thanh Huyền khẽ nhắm mắt.
+Thẩm Thanh Huyền không để mình suy nghĩ thêm. Hắn bế nàng vào phòng nghỉ phía sau thư phòng, thiết lập trận pháp ổn định linh khí, rồi tiếp tục giải dược.
 
-Một lúc sau, hắn mở mắt, nhẹ nhàng bế nàng lên.
+Lần này, hắn làm chậm hơn.
 
-"Tiểu Uyển..."
+Từng tia dược tính được tách khỏi kinh mạch, dẫn ra ngoài mà không làm tổn thương căn cơ nàng.
 
-Giọng nói rất khẽ.
+Đến khi giọt dược cuối cùng ngưng tụ trong lòng bàn tay, hắn mới thu lại linh lực.
 
-"Ta đưa ngươi đi nghỉ."
+Hắn phong ấn giọt dược vào bình ngọc.
 
-***
+Sau đó truyền âm gọi đệ tử trực viện:
 
-Thẩm Thanh Huyền không dùng phương pháp giải dược khiến nàng phải chịu thêm tổn thương hay xâm phạm đến thân thể.
-
-Hắn đặt nàng lên giường trong gian phòng nghỉ phía sau thư phòng, lập tức thiết lập một tầng trận pháp ổn định linh khí.
-
-Sau đó tự mình dùng linh lực dẫn dược tính ra ngoài, từng chút một.
-
-Mỗi luồng linh lực đều được khống chế cẩn thận.
-
-Hắn không dám nóng vội.
-
-Càng không dám để xảy ra sai sót.
-
-Dược lực được tách khỏi kinh mạch nàng, cuối cùng ngưng tụ thành một giọt chất lỏng sẫm màu trong lòng bàn tay hắn.
-
-Thẩm Thanh Huyền nhìn giọt dược ấy.
-
-Ánh mắt lạnh đến đáng sợ.
-
-Hắn phong ấn nó vào một bình ngọc.
-
-Sau đó truyền âm gọi đệ tử trực viện.
-
-"Đến Chấp Pháp Đường, mời trưởng lão chủ sự tới gặp ta."
+“Mời Chấp Pháp Đường đến gặp ta.”
 
 Giọng hắn bình thản.
 
-Nhưng người nhận lệnh lập tức cảm nhận được sự nghiêm trọng khác thường.
+Nhưng ánh mắt đã lạnh xuống.
 
-"Tuân lệnh, tông chủ!"
+---
 
-***
+### IV. Hai ngày không tỉnh
 
-## IV. Đêm thứ nhất
+Diệp Vô Trần lên Thanh Huyền Phong ngay trong đêm.
 
-Tin đệ tử thân truyền của tông chủ đột nhiên trọng thương rất nhanh truyền đến tai các trưởng lão thân cận.
+Vừa nhìn thấy Tô Tiểu Uyển nằm bất động trên giường, ông đã biến sắc.
 
-Diệp Vô Trần cũng lập tức chạy lên Thanh Huyền Phong.
+“Vô Ưu!”
 
-Khi ông đến nơi, Thẩm Thanh Huyền đang ngồi bên giường, một tay đặt trên cổ tay Tô Tiểu Uyển.
+“Đừng đánh thức nàng,” Thẩm Thanh Huyền nói.
 
-Mái tóc trắng bạc buông xuống vai, gương mặt vẫn bình thản, nhưng đôi mắt xanh biếc có phần trầm hơn thường ngày.
+Diệp Vô Trần vội hạ giọng.
 
-"Đệ tử bái kiến sư phụ."
+“Sư phụ, chuyện gì đã xảy ra?”
 
-Diệp Vô Trần chắp tay.
+Thẩm Thanh Huyền đặt bình ngọc lên bàn.
 
-"Đệ tử nghe nói Vô Ưu gặp chuyện..."
+“Trong bánh hoa quế Cố Tuyết Dao mang đến có tà dược.”
 
-Thẩm Thanh Huyền không quay đầu.
+Diệp Vô Trần sững người.
 
-"Vào đi."
+“Tuyết Dao?”
 
-Diệp Vô Trần bước đến.
+Ông nhìn bình ngọc rồi lại nhìn thiếu nữ đang hôn mê.
 
-Khi nhìn thấy gương mặt tái nhợt của tiểu cô nương trên giường, sắc mặt ông lập tức thay đổi.
+“Không thể nào…”
 
-"Vô Ưu!"
+“Ta cũng mong chuyện ấy không phải thật.”
 
-Ông vừa định tiến lên thì Thẩm Thanh Huyền khẽ nâng tay.
+Thẩm Thanh Huyền đáp, không chút gay gắt.
 
-"Đừng đánh thức nàng."
-
-Diệp Vô Trần vội dừng bước.
-
-"Sư phụ, rốt cuộc đã xảy ra chuyện gì?"
-
-Thẩm Thanh Huyền đặt một bình ngọc lên bàn.
-
-"Trong bánh hoa quế Cố Tuyết Dao mang đến có dược."
-
-Diệp Vô Trần ngẩn người.
-
-"Cố Tuyết Dao?"
-
-Ông nhìn bình ngọc.
-
-Rồi nhìn thiếu nữ đang nằm bất động trên giường.
-
-Sắc mặt càng lúc càng khó coi.
-
-"Không thể nào..."
-
-Thẩm Thanh Huyền quay đầu.
-
-Ánh mắt bình thản nhìn ông.
-
-"Vô Trần."
-
-Giọng hắn không mang theo tức giận.
-
-"Ta cũng mong chuyện ấy không phải thật."
-
-Diệp Vô Trần nghẹn lời.
-
-Một lúc sau, ông cúi đầu.
-
-"Đệ tử thất lễ."
-
-Thẩm Thanh Huyền nói:
-
-"Ta đã bảo Chấp Pháp Đường điều tra. Khi chưa có chứng cứ, không kết tội bất cứ ai."
-
-Diệp Vô Trần chắp tay.
-
-"Đệ tử hiểu."
-
-Ông nhìn Tô Tiểu Uyển.
-
-"Nàng..."
-
-"Đã qua nguy hiểm trực tiếp. Nhưng kinh mạch vốn suy yếu, dược lực khiến thần hồn chịu chấn động."
-
-Thẩm Thanh Huyền dừng một chút.
-
-"Ta đã giải dược, cần chờ nàng tỉnh lại."
-
-Diệp Vô Trần chậm rãi thở ra.
-
-"Vậy là tốt..."
-
-Nhưng khi nhìn thấy đứa trẻ từng được mình nhặt về từ đám ăn mày đang nằm bất tỉnh, ông vẫn không khỏi đau lòng.
-
-"Đệ tử có thể giúp gì không, sư phụ?"
-
-Thẩm Thanh Huyền suy nghĩ một lát.
-
-"Ngươi trở về Tu Trúc Đường, phối hợp với Chấp Pháp Đường điều tra. Nếu Tuyết Dao thật sự liên quan, không được bao che."
-
-Diệp Vô Trần im lặng.
-
-Một lúc lâu sau, ông cúi đầu.
-
-"Vâng, sư phụ."
-
-Ông nhìn Vô Ưu thêm lần nữa.
-
-Rồi chậm rãi cáo lui.
-
-***
-
-Đêm xuống.
-
-Một vị trưởng lão tinh thông y đạo được mời đến kiểm tra mạch tượng.
-
-Sau khi xem xét hồi lâu, vị trưởng lão ấy chắp tay.
-
-"Bẩm tông chủ, dược lực đã được hóa giải hoàn toàn. Kinh mạch tuy bị chấn động, nhưng nhờ người kịp thời bảo vệ nên không tổn hại đến căn cơ."
-
-Thẩm Thanh Huyền khẽ gật đầu.
-
-"Còn thần hồn?"
-
-"Thần hồn hiện đã ổn định. Chỉ là thân thể nàng vốn yếu, sau lần Trúc Cơ thất bại lại chưa phục hồi hoàn toàn. Lần này chịu kích thích quá lớn, e rằng cần thời gian mới có thể tỉnh lại."
-
-"Bao lâu?"
-
-Vị trưởng lão hơi do dự.
-
-"Điều ấy... khó nói chính xác. Có thể ngày mai, cũng có thể lâu hơn."
-
-Thẩm Thanh Huyền im lặng.
-
-Sau đó khẽ đáp:
-
-"Ta hiểu."
-
-Vị trưởng lão chắp tay.
-
-"Tông chủ, người đã hao tổn không ít linh lực. Chi bằng để đệ tử trực viện thay phiên chăm sóc, người nghỉ ngơi một lát?"
-
-"Không cần."
-
-Hắn nhìn Tô Tiểu Uyển.
-
-"Ta ở đây."
-
-Không ai dám khuyên thêm.
-
-***
-
-Đêm thứ nhất trôi qua rất chậm.
-
-Thẩm Thanh Huyền ngồi bên giường.
-
-Trên bàn đặt một chén trà đã nguội.
-
-Hắn không uống.
-
-Cũng không để ý.
-
-Cứ cách một khoảng thời gian, hắn lại kiểm tra mạch tượng nàng.
-
-Mọi thứ đều ổn định.
-
-Nhưng nàng vẫn chưa tỉnh.
-
-Hắn biết đó là phản ứng bình thường sau khi thần hồn bị chấn động.
-
-Biết rõ nàng cần nghỉ ngơi.
-
-Biết rằng nóng vội cũng không có ích gì.
-
-Vậy mà mỗi lần nhìn đôi mắt tím biếc vẫn khép chặt, trong lòng hắn lại không khỏi xuất hiện một cảm giác nặng nề.
-
-Hắn nhớ đến buổi chiều nàng ăn bánh.
-
-Nàng đã hỏi:
-
-*"Sư tôn không dùng sao?"*
-
-Và hắn đáp:
-
-*"Ngươi thích thì cứ ăn."*
-
-Chỉ một câu nói.
-
-Một câu nói vô cùng bình thường.
-
-Vậy mà giờ đây, hắn chỉ ước mình chưa từng nói ra.
-
-Thẩm Thanh Huyền khẽ nhắm mắt.
-
-Nếu khi ấy hắn kiểm tra kỹ hơn.
-
-Nếu hắn không để nàng dùng thứ đồ người khác mang đến.
-
-Nếu...
-
-Hắn chậm rãi mở mắt.
-
-Những chữ ấy vốn chẳng có ích gì.
-
-Điều cần làm, hắn đã làm.
-
-Điều cần điều tra, Chấp Pháp Đường đang điều tra.
-
-Nhưng cảm giác áy náy vẫn không biến mất.
-
-Hắn đưa tay, nhẹ nhàng chỉnh lại góc chăn cho nàng.
-
-"Tiểu Uyển."
-
-Không có tiếng đáp.
-
-Hắn nhìn gương mặt nhỏ nhắn đang say ngủ.
-
-Một lúc sau, khẽ nói:
-
-"Ngày mai tỉnh lại nhé."
-
-Ngoài cửa sổ, trăng sáng lặng lẽ trôi qua biển mây.
-
-Đêm ấy, Thẩm Thanh Huyền không rời khỏi giường nàng.
-
-***
-
-## V. Ngày thứ hai
-
-Sáng hôm sau.
-
-Tô Tiểu Uyển vẫn chưa tỉnh.
-
-Ánh nắng xuyên qua rèm trúc, rơi xuống mặt đất.
-
-Thẩm Thanh Huyền đang ngồi bên giường, xem xét một quyển ngọc giản do Chấp Pháp Đường gửi đến.
-
-Trong đó ghi lại những kết quả điều tra ban đầu.
-
-Hộp bánh do Cố Tuyết Dao tự mang đến.
-
-Nguyên liệu được nàng ta chuẩn bị từ trước.
-
-Một phần dược vật có cùng dấu vết linh khí đã được tìm thấy trong đồ vật nàng ta cất giữ.
-
-Tuyết Dao hiện đã bị đưa đến Chấp Pháp Đường để thẩm vấn.
-
-Thẩm Thanh Huyền đọc xong, khép ngọc giản lại.
-
-"Tiếp tục điều tra."
-
-Hắn truyền âm.
-
-"Không được ép cung. Ta muốn chứng cứ rõ ràng."
-
-Bên kia lập tức đáp:
-
-"Tuân lệnh, tông chủ."
-
-Hắn đặt ngọc giản xuống.
-
-Rồi quay đầu nhìn người trên giường.
-
-Nàng vẫn nằm yên.
-
-Mạch tượng ổn định.
-
-Thần hồn cũng không có dấu hiệu suy yếu.
-
-Nhưng nàng vẫn không mở mắt.
-
-Thẩm Thanh Huyền chậm rãi nắm lấy cổ tay nàng.
-
-Hai ngón tay đặt lên mạch môn.
-
-Kiểm tra một lần.
-
-Rồi thêm lần nữa.
-
-Kết quả không thay đổi.
-
-Hắn buông tay.
-
-Một lúc sau, lại đưa tay chạm lên trán nàng.
-
-Không sốt.
-
-Khí huyết cũng đã dần ổn định.
-
-Về lý trí, hắn biết mình không cần lo lắng quá mức.
-
-Nhưng...
-
-Hắn nhìn đôi mắt đang khép chặt ấy.
-
-Bỗng phát hiện sự yên lặng trong căn phòng khiến mình khó chịu.
-
-Trước kia, thư phòng của hắn luôn yên tĩnh.
-
-Mỗi ngày ngoài tông vụ và tu luyện, hiếm có người nào được phép đến quấy rầy.
-
-Hắn vốn thích như vậy.
-
-Cho đến khi Tiểu Uyển xuất hiện.
-
-Nàng đến mang theo rất nhiều câu hỏi.
-
-Có những câu khiến hắn phải nghĩ cách giải thích lại từ đầu.
-
-Có những hôm nàng mang sách đến, chưa học được bao lâu đã ngồi ngẩn người nhìn ra cửa sổ.
-
-Lúc bị hắn gọi, nàng lại vội vàng đáp:
-
-*"Sư tôn, con đang nghe mà!"*
-
-Hắn thường biết nàng chẳng nghe được bao nhiêu.
-
-Nhưng vẫn kiên nhẫn giảng lại.
-
-Từ khi nào, những chuyện ấy đã trở thành một phần trong sinh hoạt thường ngày của hắn?
-
-Thẩm Thanh Huyền không biết.
-
-Hắn chỉ biết hôm nay nàng không đến thư phòng.
-
-Và hắn không thích điều đó.
-
-***
-
-Đến trưa, Diệp Vô Trần lại lên Thanh Huyền Phong.
-
-Lần này, ông mang theo một ít linh dược quý.
-
-"Sư phụ, đây là linh dược do Dược Đường chọn lựa. Có thể giúp Vô Ưu dưỡng thần, phục hồi kinh mạch."
-
-Thẩm Thanh Huyền nhận lấy, xem qua.
-
-"Để lại đi."
-
-"Vâng."
-
-Diệp Vô Trần nhìn về phía giường.
-
-"Nàng vẫn chưa tỉnh sao?"
-
-"Chưa."
-
-Giọng hắn rất bình thản.
-
-Nhưng Diệp Vô Trần nghe xong, trong lòng lại nặng xuống.
-
-"Sư phụ..."
-
-Ông ngập ngừng.
-
-"Hay để đệ tử ở lại chăm sóc nàng một lúc? Người đã hai ngày không nghỉ rồi."
-
-Thẩm Thanh Huyền nhìn ông.
-
-"Không cần."
-
-Diệp Vô Trần khẽ thở dài.
-
-"Sư phụ, đệ tử biết người lo cho nàng. Nhưng..."
-
-"Vô Trần."
-
-"Đệ tử nghe."
-
-"Ngươi giúp ta một việc."
-
-Diệp Vô Trần lập tức nghiêm sắc mặt.
-
-"Xin sư phụ phân phó."
-
-"Đi xem Chấp Pháp Đường đã tra đến đâu. Khi có kết quả, lập tức báo ta."
-
-Diệp Vô Trần im lặng.
-
-Một lát sau, ông chắp tay.
-
-"Vâng."
-
-Trước khi rời đi, ông lại nhìn Tô Tiểu Uyển.
-
-Ánh mắt mang theo nỗi lo lắng khó che giấu.
-
-Rồi ông chậm rãi bước ra ngoài.
-
-***
-
-Chiều hôm ấy.
-
-Thẩm Thanh Huyền ngồi bên giường, tự tay thay một túi hương an thần đặt gần gối nàng.
-
-Thứ hương ấy có tác dụng dưỡng thần, rất thích hợp với người vừa chịu tổn thương thần thức.
-
-Hắn chỉnh lại độ sáng của ngọn đèn lưu ly.
-
-Sau đó cẩn thận kiểm tra trận pháp ổn định linh khí quanh phòng.
-
-Tất cả đều hoàn hảo.
-
-Không có sai sót.
-
-Nhưng nàng vẫn chưa tỉnh.
-
-Thẩm Thanh Huyền đứng bên giường một lúc.
-
-Rồi chậm rãi ngồi xuống.
-
-"Tiểu Uyển."
-
-Hắn khẽ gọi.
-
-Không có tiếng đáp.
-
-Hắn nhìn nàng.
-
-"Ngươi không phải rất muốn học Tịnh Trần thuật sao?"
-
-Căn phòng vẫn yên tĩnh.
-
-Hắn nhớ đến buổi học đầu tiên.
-
-Khi ấy, nàng vừa tỉnh ngủ đã phát hiện mình làm bẩn bàn trà, xấu hổ đến mức hai tai đỏ bừng.
-
-Hắn chỉ thuận miệng nói có thể dùng Tịnh Trần thuật.
-
-Không ngờ nàng lại vui vẻ như vậy.
-
-Một pháp thuật nhỏ bé, đối với hắn chẳng đáng nhắc đến, lại khiến nàng mong chờ mãi.
-
-Thẩm Thanh Huyền khẽ cúi đầu.
-
-"Chờ ngươi tỉnh, ta sẽ dạy."
-
-Hắn dừng một chút.
-
-"Ngươi muốn học bao nhiêu lần cũng được."
-
-Không có ai trả lời.
-
-Một cơn gió chiều khẽ lay rèm cửa.
-
-Thẩm Thanh Huyền nhìn nàng thật lâu.
-
-Rồi chậm rãi nhận ra, hắn đã chờ suốt một ngày một đêm chỉ để được nghe nàng đáp một tiếng.
-
-Vậy mà đến giờ vẫn chưa nghe thấy.
-
-***
-
-## VI. Đêm thứ hai
-
-Đêm thứ hai.
-
-Thanh Huyền Phong yên tĩnh đến mức có thể nghe rõ tiếng gió luồn qua từng kẽ lá.
-
-Trong phòng, ngọn đèn lưu ly tỏa ánh sáng dịu nhẹ.
-
-Tô Tiểu Uyển vẫn nằm yên dưới lớp chăn mỏng.
-
-Gương mặt nàng đã hồng hào hơn hôm trước.
-
-Hơi thở cũng đều đặn.
-
-Dược lực hoàn toàn tan biến.
-
-Thần hồn ổn định.
-
-Kinh mạch đang dần hồi phục.
-
-Nhưng đôi mắt tím biếc vẫn khép chặt.
-
-Thẩm Thanh Huyền ngồi bên giường.
-
-Hắn vừa kiểm tra mạch tượng lần nữa.
-
-Không có gì bất thường.
-
-Theo lẽ thường, chỉ cần chờ thêm.
-
-Nhưng hắn đã chờ suốt hai ngày.
-
-Đến giờ phút này, hắn bỗng nhận ra có những chuyện dù hiểu rất rõ, cũng không thể dùng lý trí để khiến lòng mình bình yên.
-
-Hắn nhìn nàng.
-
-Trong đầu bất giác hiện lên một ý nghĩ.
-
-*Nếu nàng không tỉnh nữa thì sao?*
-
-Bàn tay đang đặt trên cổ tay nàng hơi dừng.
-
-Ý nghĩ ấy vừa xuất hiện, một cảm giác lạnh lẽo đã chậm rãi lan khắp lồng ngực.
-
-Hắn không muốn tiếp tục nghĩ.
-
-Nhưng càng cố ngăn lại, những hình ảnh ấy càng hiện lên rõ ràng.
-
-Một thư phòng không còn tiếng nàng gọi.
-
-Một bàn trà không còn những quyển sách được đặt ngay ngắn trước giờ học.
-
-Một Lê Hoa Viện không còn bóng dáng thiếu nữ ngồi dưới gốc lê luyện tập dẫn khí.
-
-Không còn những câu hỏi ngây ngô.
-
-Không còn những lần nàng ngượng ngùng cúi đầu.
-
-Cũng không còn đôi mắt tím biếc thường lén nhìn hắn khi giảng bài.
-
-Thẩm Thanh Huyền chậm rãi nhắm mắt.
-
-Hắn đã sống qua rất nhiều năm tháng.
-
-Từng chứng kiến sinh ly tử biệt.
-
-Từng tiễn đưa những người thân quen.
-
-Hắn hiểu rõ quy luật sinh tử.
-
-Hiểu rằng trên con đường tu hành, không ai có thể bảo đảm mọi cuộc gặp gỡ đều kéo dài mãi mãi.
-
-Nhưng chưa từng nghĩ, chỉ sau một tháng, một tiểu cô nương xa lạ lại có thể khiến hắn sợ hãi trước hai chữ mất đi.
-
-Hắn cúi đầu nhìn nàng.
-
-Một tháng.
-
-Chỉ mới một tháng.
-
-Vậy mà khi nghĩ đến khả năng từ nay không còn nghe nàng gọi một tiếng sư tôn, trong lòng hắn lại xuất hiện một khoảng trống khiến chính hắn kinh ngạc.
-
-Hắn nhớ đến lần đầu nàng ngã vào lòng mình.
-
-Nhớ đến vẻ mặt ngỡ ngàng khi nhìn thấy thủy kính.
-
-Nhớ đến câu hỏi nàng đã buột miệng thốt ra:
-
-*"Ngài có thấy ta đẹp không?"*
-
-Nhớ đến lần nàng chạy ra nép sau lưng hắn.
-
-Nhớ đến buổi lễ bái sư, khi nàng nâng chén trà bằng cả hai tay, lần đầu gọi:
-
-*"Xin sư tôn nhận trà."*
-
-Rồi nhớ đến một buổi chiều rất bình thường.
-
-Nàng ngồi bên cạnh, quên mất bài học, hai má đỏ bừng khi bị hắn hỏi.
-
-*"Tại vì mắt sư tôn rất đẹp."*
-
-Thẩm Thanh Huyền mở mắt.
-
-Bên ngoài, ánh trăng đã lên cao.
-
-Trong phòng vẫn yên lặng.
-
-Hắn chợt hiểu vì sao mình không thể rời đi.
-
-Không phải vì nàng là đệ tử thân truyền.
-
-Không phải chỉ vì hắn biết bí mật về thân phận nàng.
-
-Càng không phải đơn thuần vì lòng thương xót đối với một người lạc đến thế giới xa lạ.
-
-Hắn muốn nàng sống.
-
-Muốn nàng bình an.
-
-Muốn ngày mai, khi hắn trở về thư phòng, nàng vẫn có thể ngồi bên bàn trà, ngẩng đầu nhìn hắn bằng đôi mắt tím biếc ấy.
-
-Hắn muốn nàng tiếp tục hỏi bài.
-
-Muốn nàng tiếp tục mỉm cười.
-
-Muốn những ngày tháng sau này, trên Thanh Huyền Phong vẫn có bóng dáng nàng.
-
-Không phải vì trách nhiệm.
-
-Mà bởi chính hắn không nỡ để nàng rời đi.
-
-Thẩm Thanh Huyền lặng người.
-
-Hồi lâu sau, hắn khẽ cúi đầu.
-
-Một cảm xúc vốn đã âm thầm nảy sinh từ những ngày đầu gặp gỡ, đến tận lúc này mới hiện rõ trước mắt.
-
-**Hắn đã động lòng với Tô Tiểu Uyển.**
-
-Ý nghĩ ấy khiến hắn im lặng rất lâu.
-
-Không phải vì không thể chấp nhận.
-
-Mà bởi hắn chưa từng ngờ, mình sẽ nhận ra điều ấy trong hoàn cảnh này.
-
-Nàng vừa bái hắn làm thầy.
-
-Tin tưởng hắn.
-
-Xem hắn là người có thể dựa vào giữa thế giới xa lạ.
-
-Còn hắn, với thân phận sư tôn, càng phải biết giữ đúng giới hạn.
-
-Hắn không thể để tình cảm riêng trở thành gánh nặng cho nàng.
-
-Cũng không thể vì bản thân động lòng mà mặc nhiên cho rằng nàng sẽ có cùng tâm ý.
-
-Huống hồ, nàng vẫn đang hôn mê trước mặt hắn.
-
-Điều quan trọng nhất lúc này không phải tình cảm của hắn.
-
-Mà là nàng phải bình an tỉnh lại.
-
-Thẩm Thanh Huyền chậm rãi đưa tay, nhẹ nhàng nắm lấy bàn tay đặt trên chăn của nàng.
-
-"Tiểu Uyển."
-
-Giọng hắn rất thấp.
-
-"Ngươi đã nói ngày mai sẽ đến học."
-
-Không có tiếng đáp.
-
-Hắn nhìn nàng thật lâu.
-
-"Ta còn chưa cho phép ngươi thất hứa."
-
-Một lúc sau, hắn khẽ thở ra.
-
-Bàn tay nắm lấy tay nàng hơi siết lại.
-
-"Tiểu Uyển."
-
-Hắn gọi thêm lần nữa.
-
-Giọng nói dịu hơn rất nhiều.
-
-"Tỉnh lại đi."
-
-Ngoài cửa sổ, mây đêm chậm rãi che khuất ánh trăng.
-
-Ngọn đèn lưu ly vẫn cháy.
-
-Thẩm Thanh Huyền ngồi bên giường, không rời đi.
-
-***
-
-## VII. Ngày thứ ba — Một tiếng sư tôn
-
-Khi ánh nắng đầu tiên của ngày thứ ba xuyên qua cửa sổ, Tô Tiểu Uyển cuối cùng cũng khẽ động ngón tay.
-
-Động tác rất nhỏ.
-
-Nếu là người bình thường, có lẽ sẽ không nhận ra.
-
-Nhưng Thẩm Thanh Huyền lập tức ngẩng đầu.
-
-Hắn đang ngồi bên giường, trước mặt là một quyển ngọc giản chưa mở.
-
-Ngay khi cảm nhận được linh lực quanh nàng có biến chuyển, hắn đã đưa tay kiểm tra mạch tượng.
-
-"Tiểu Uyển?"
-
-Không có tiếng đáp.
-
-Nhưng hàng mi nàng khẽ run.
-
-Thẩm Thanh Huyền nín lặng.
-
-Một lúc lâu sau, đôi mắt tím biếc mới chậm rãi mở ra.
-
-Ánh nhìn còn mơ hồ.
-
-Nàng nhìn trần nhà xa lạ, rồi chậm rãi nghiêng đầu.
-
-Đến khi nhìn thấy người ngồi bên cạnh, môi nàng mới khẽ động.
-
-"Sư... tôn?"
-
-Chỉ hai tiếng ấy thôi, cảm giác nặng nề đè trong lòng Thẩm Thanh Huyền suốt hai ngày cuối cùng cũng bắt đầu tan đi.
-
-Hắn lập tức kiểm tra thần thức, khí huyết và kinh mạch nàng.
-
-Mọi thứ đều ổn định.
-
-Thần hồn đã tỉnh.
-
-Không còn dấu hiệu bất thường.
-
-Hắn nhìn nàng.
-
-Một lúc sau mới khẽ đáp:
-
-"Ừ."
-
-Giọng hắn trầm thấp.
-
-"Ta đây."
-
-Tô Tiểu Uyển chớp mắt.
-
-Nàng cảm thấy cả người mệt mỏi, đầu óc vẫn hơi nặng.
-
-Một lát sau mới nhỏ giọng hỏi:
-
-"Tiểu Uyển... ngủ bao lâu rồi ạ?"
-
-Thẩm Thanh Huyền nhìn nàng.
-
-"Hai ngày."
-
-Nàng ngẩn ra.
-
-"Hai ngày?"
-
-"Ừ."
-
-Nàng chớp mắt.
-
-Dường như phải mất một lúc mới hiểu được.
-
-Sau đó, nàng vô thức cúi đầu.
-
-"Vậy... bài học hôm qua..."
-
-Thẩm Thanh Huyền hơi khựng lại.
-
-Hắn nhìn nàng.
-
-Một người vừa hôn mê suốt hai ngày, tỉnh lại câu đầu tiên đã lo chuyện học hành.
-
-Hắn vừa bất đắc dĩ, vừa cảm thấy khóe môi mình hơi động.
-
-"Không cần học nữa."
-
-Tô Tiểu Uyển lập tức hoảng hốt.
-
-"Sư tôn không muốn dạy Tiểu Uyển nữa sao?"
-
-Hắn ngẩn ra.
-
-Rồi khẽ lắc đầu.
-
-"Không phải."
-
-Hắn nhẹ nhàng kéo chăn lên vai nàng.
-
-"Đợi ngươi khỏe lại, ta sẽ dạy."
-
-Nàng nhìn hắn.
-
-"Thật ạ?"
-
-"Thật."
-
-"Không phải vì Tiểu Uyển không thuộc bài nên người giận đấy chứ?"
-
-Thẩm Thanh Huyền im lặng một lát.
-
-Rồi bất đắc dĩ đáp:
-
-"Ngươi vừa tỉnh lại, có thể đừng nghĩ đến chuyện bài vở trước được không?"
-
-Tô Tiểu Uyển chớp mắt.
-
-Một lúc sau mới khẽ cười.
-
-"Dạ..."
-
-Nụ cười ấy rất yếu.
-
-Nhưng khi nhìn thấy, Thẩm Thanh Huyền chợt cảm thấy trong lòng mình có thứ gì đó được đặt xuống.
-
-Hai ngày.
-
-Hắn đã đợi suốt hai ngày.
-
-Chỉ để được thấy nàng mở mắt.
-
-Chỉ để được nghe nàng gọi một tiếng sư tôn.
-
-Chỉ để thấy nụ cười nhỏ bé ấy xuất hiện trở lại.
-
-Hắn khẽ cúi đầu.
-
-"Tiểu Uyển."
-
-"Dạ?"
-
-"Đừng dọa ta như vậy nữa."
-
-Giọng nói rất nhẹ.
-
-Tô Tiểu Uyển ngẩn người.
-
-Nàng nhìn hắn.
-
-Lúc này mới nhận ra sắc mặt sư tôn có chút khác thường.
-
-Không phải mệt mỏi đến mức suy nhược.
-
-Nhưng đôi mắt xanh biếc vốn luôn trầm tĩnh lại có vài tia đỏ rất nhạt.
-
-Dường như hắn đã thức quá lâu.
-
-Nàng khẽ nhíu mày.
-
-"Sư tôn..."
-
-"Ừ?"
-
-"Mắt người đỏ rồi."
-
-Thẩm Thanh Huyền hơi ngừng.
-
-Tô Tiểu Uyển nhìn hắn.
-
-"Người không nghỉ ngơi sao?"
-
-"Không sao."
-
-Nàng im lặng một lát.
-
-Rồi yếu ớt đưa tay, khẽ nắm lấy góc tay áo hắn.
-
-"Sư tôn..."
-
-"Ta nghe."
-
-"Người cũng phải chăm sóc bản thân chứ."
-
-Thẩm Thanh Huyền nhìn nàng.
-
-Trong khoảnh khắc ấy, lòng hắn chợt mềm xuống.
-
-Nàng vừa trải qua một trận nguy hiểm.
-
-Thân thể còn chưa hồi phục.
-
-Vậy mà điều nàng quan tâm lại là hắn có nghỉ ngơi hay không.
-
-Hồi lâu sau, hắn mới khẽ đáp:
-
-"Được."
-
-Tô Tiểu Uyển nhìn hắn thêm một lát.
-
-Rồi nhẹ nhàng mỉm cười.
-
-"Vậy Tiểu Uyển yên tâm rồi."
-
-Thẩm Thanh Huyền không nói gì.
-
-Chỉ lặng lẽ nhìn nụ cười ấy.
-
-Đến lúc này, hắn mới thực sự hiểu một điều.
-
-Trước kia, hắn nghĩ mình đang chăm sóc một tiểu cô nương từ thế giới khác lạc đến nơi này.
-
-Nhưng hóa ra, trong lòng nàng, hắn cũng đã trở thành một người đáng để lo lắng.
-
-Không chỉ có hắn quan tâm đến nàng.
-
-Nàng cũng đang quan tâm đến hắn.
-
-Và chính điều ấy khiến tình cảm vừa được hắn nhận ra trở nên sâu sắc hơn.
-
-***
-
-## VIII. Chính điện luận tội
-
-Đến chiều ngày thứ ba, sau khi xác nhận Tiểu Uyển đã tỉnh táo và có thể tự nghỉ ngơi, Thẩm Thanh Huyền mới rời Thanh Huyền Phong.
-
-Trước khi đi, hắn dặn đệ tử trực viện trông coi bên ngoài, nếu nàng có điều gì bất thường phải lập tức truyền tin.
-
-Sau đó, hắn đến Thanh Vân Chính Điện.
-
-Hôm nay, trong điện không có cảnh các trưởng lão lần lượt bẩm báo tông vụ như thường lệ.
-
-Không khí vô cùng nặng nề.
-
-Hai hàng chấp sự Chấp Pháp Đường đứng nghiêm trang.
-
-Diệp Vô Trần có mặt.
-
-Một số trưởng lão phụ trách hình luật cũng đã đến đông đủ.
-
-Giữa đại điện, Cố Tuyết Dao đang quỳ trên nền đá lạnh.
-
-Ba ngày qua, nàng ta đã bị tạm giam để điều tra.
-
-Sắc mặt tiều tụy hơn trước, tóc búi hơi rối, nhưng vẫn cố giữ dáng vẻ đoan trang.
-
-Khi Thẩm Thanh Huyền bước vào, tất cả lập tức hành lễ.
-
-"Bái kiến tông chủ!"
-
-Hắn đi thẳng đến chủ vị.
-
-Áo trắng viền bạc khẽ lay động.
-
-Gương mặt tuấn mỹ vẫn bình thản như thường.
-
-Nhưng hôm nay, không một ai dám tùy tiện ngẩng đầu nhìn hắn.
-
-Thẩm Thanh Huyền ngồi xuống.
-
-"Bắt đầu đi."
-
-Một vị trưởng lão Chấp Pháp Đường bước lên.
-
-"Bẩm tông chủ, sau ba ngày điều tra, Chấp Pháp Đường đã xác minh dược vật trong bánh hoa quế do Cố Tuyết Dao mang đến."
-
-Ông đặt ba ngọc giản lên án trước điện.
-
-"Nguyên liệu làm bánh được nàng ta tự chuẩn bị. Một phần dược vật có cùng dấu vết linh khí được tìm thấy trong đồ vật nàng ta cất giữ. Chúng ta đã đối chiếu với phần dược tàn do tông chủ phong ấn, xác nhận cùng một loại."
-
-Thẩm Thanh Huyền khẽ gật đầu.
-
-"Tiếp tục."
-
-Vị trưởng lão nói:
-
-"Qua thẩm vấn, Cố Tuyết Dao đã thừa nhận tự ý sử dụng loại dược vật có thể quấy nhiễu thần trí và khí huyết của người dùng. Mục đích là khiến tông chủ mất khả năng tự chủ, từ đó nhân cơ hội tiếp cận."
-
-Trong điện vang lên vài tiếng hít sâu.
-
-Một số trưởng lão nhìn về phía Cố Tuyết Dao, sắc mặt khó coi.
-
-Dùng tà dược với tông chủ.
-
-Đây không còn là chuyện đố kỵ thông thường.
-
-Mà là hành vi nghiêm trọng, xúc phạm tôn nghiêm tông môn và xâm phạm người khác.
-
-Thẩm Thanh Huyền vẫn bình thản.
-
-"Cố Tuyết Dao."
-
-Nàng ta lập tức run lên.
-
-"Đệ tử có mặt..."
-
-"Ngươi đã thừa nhận dược vật trong bánh do mình chuẩn bị?"
-
-Cố Tuyết Dao cúi đầu.
-
-"...Vâng."
-
-"Ngươi cũng thừa nhận muốn dùng nó để khống chế thần trí của ta?"
-
-Sắc mặt nàng ta trắng bệch.
-
-"Đệ tử... nhất thời hồ đồ..."
-
-"Ta không hỏi ngươi có hồ đồ hay không."
-
-Giọng Thẩm Thanh Huyền vẫn bình thản.
-
-"Ta hỏi ngươi có thừa nhận hay không."
-
-Cố Tuyết Dao run rẩy.
-
-Một lúc lâu sau mới nghẹn ngào đáp:
-
-"...Có."
-
-Đại điện im phăng phắc.
-
-Thẩm Thanh Huyền nhìn nàng ta.
-
-"Ngươi có biết Vô Ưu đã hôn mê bao lâu không?"
-
-Cố Tuyết Dao không dám đáp.
-
-"Hai ngày."
-
-Giọng hắn rất nhẹ.
-
-"Suốt hai ngày, nàng không thể tỉnh lại."
-
-Cố Tuyết Dao khẽ run lên.
-
-"Đệ tử... đệ tử không biết bánh sẽ bị Vô Ưu ăn..."
-
-Thẩm Thanh Huyền nhìn nàng ta.
-
-"Cho nên nếu người ăn là ta, mọi chuyện liền không sao?"
-
-"..."
-
-Cố Tuyết Dao nghẹn lời.
-
-"Đệ tử không có ý hại Vô Ưu..."
-
-"Ngươi không có ý hại nàng?"
-
-"Vâng!"
-
-Cố Tuyết Dao vội vàng ngẩng đầu.
-
-"Đệ tử chỉ nhất thời hồ đồ, muốn được đến gần tông chủ. Đệ tử không nghĩ Vô Ưu sẽ ăn bánh, càng không biết nàng sẽ bị thương!"
-
-Thẩm Thanh Huyền im lặng.
-
-Một lúc sau, hắn chậm rãi nói:
-
-"Vậy ngươi có từng nghĩ đến việc ta không đồng ý hay không?"
-
-Cố Tuyết Dao sững người.
-
-Hắn nhìn nàng ta.
-
-"Ngươi muốn dùng dược vật khiến ta không thể tự chủ, rồi lợi dụng trạng thái ấy để đạt mục đích."
-
-Giọng hắn trầm xuống.
-
-"Ngươi cho rằng chỉ cần bản thân có tình cảm, người khác liền phải chấp nhận?"
-
-Cố Tuyết Dao cúi gằm đầu.
-
-"Đệ tử..."
-
-"Ta không có tình cảm với ngươi."
-
-Câu nói vang lên rất rõ ràng.
-
-Không chút do dự.
-
-"Trước kia không có. Hiện tại cũng không."
-
-Cố Tuyết Dao như bị một nhát dao đâm thẳng vào lòng.
-
-Nàng ta ngẩng phắt đầu.
-
-"Tông chủ..."
-
-Nhưng Thẩm Thanh Huyền không nhìn nàng ta nữa.
-
-Hắn quay sang trưởng lão Chấp Pháp Đường.
-
-"Y theo môn quy, ngươi thấy nên xử trí thế nào?"
-
-Vị trưởng lão nghiêm giọng:
-
-"Hành vi dùng tà dược để mưu đồ khống chế người khác đã phạm trọng giới. Lại gây nguy hiểm đến tính mạng đồng môn, nhất định phải nghiêm trị."
-
-Thẩm Thanh Huyền khẽ gật đầu.
-
-"Vậy thi hành theo trọng giới."
-
-Hắn chậm rãi tuyên bố:
-
-"Tước tư cách đệ tử nội môn của Cố Tuyết Dao."
-
-"Thu hồi lệnh bài và mọi đãi ngộ."
-
-"Giam Tư Quá Nhai ba năm, phong bế phần lớn linh lực trong thời gian chịu phạt."
-
-"Sau khi mãn hạn, trục xuất khỏi Thanh Vân Môn."
-
-Hắn dừng một chút.
-
-"Từ nay, không được phép bước lên Thanh Huyền Phong, trừ khi có lệnh của ta."
-
-Cả đại điện im lặng.
-
-Cố Tuyết Dao ngẩng đầu.
-
-Sắc mặt nàng ta trắng bệch.
-
-"Không..."
-
-Nàng ta lắc đầu.
-
-"Tông chủ, xin người tha mạng!"
-
-Nàng quỳ bò về phía trước.
-
-"Đệ tử biết sai rồi! Đệ tử thật sự biết sai rồi!"
-
-Thẩm Thanh Huyền không đáp.
-
-Cố Tuyết Dao lại quay sang Diệp Vô Trần.
-
-"Sư phụ!"
-
-Giọng nàng nghẹn ngào.
-
-"Sư phụ, xin người cứu con!"
-
-Diệp Vô Trần đứng một bên.
-
-Ông nhìn đứa trẻ mình từng đưa về từ những ngày lưu lạc.
-
-Trong mắt hiện lên một nỗi đau khó che giấu.
-
-"Tuyết Dao..."
-
-Ông khẽ gọi.
-
-Cố Tuyết Dao lập tức bò đến.
-
-"Sư phụ! Con biết sai rồi! Con không dám nữa!"
-
-Diệp Vô Trần chậm rãi nhắm mắt.
-
-Hồi lâu sau, ông mới mở mắt.
-
-"Con có biết, năm xưa ta đưa ba đứa về Thanh Vân Môn là vì sao không?"
-
-Cố Tuyết Dao ngẩn ra.
-
-Ông nhìn nàng.
-
-"Vì ta không muốn các con phải tiếp tục sống những ngày đói rét, không nơi nương tựa."
-
-Giọng ông chậm rãi.
-
-"Ta mong các con có thể học đạo, tu thân, trở thành người có khả năng tự bảo vệ mình và che chở người khác."
-
-Ông dừng lại.
-
-"Nhưng ta chưa từng dạy con rằng, vì muốn có được thứ gì, có thể bất chấp thủ đoạn làm hại người khác."
-
-Cố Tuyết Dao bật khóc.
-
-"Sư phụ..."
-
-Diệp Vô Trần nhìn nàng rất lâu.
-
-Rồi chậm rãi quay sang Thẩm Thanh Huyền.
-
-"Sư phụ."
-
-Ông chắp tay, cúi đầu thật sâu.
-
-"Đệ tử dạy dỗ không nghiêm, để Tuyết Dao làm ra chuyện trái đạo. Đệ tử xin chịu trách nhiệm."
-
-Thẩm Thanh Huyền nhìn ông.
-
-"Vô Trần."
-
-"Đệ tử nghe."
-
-"Ngươi có lỗi trong việc quản giáo, Chấp Pháp Đường sẽ ghi nhận."
+“Chấp Pháp Đường sẽ điều tra. Trước khi có chứng cứ, không ai được tự ý kết tội nàng ta.”
 
 Diệp Vô Trần cúi đầu.
 
-"Vâng."
+“Đệ tử hiểu.”
 
-"Nhưng lỗi của Cố Tuyết Dao, không ai có thể chịu thay."
+Ông tiến đến bên giường, nhìn đứa trẻ mình từng nuôi lớn.
 
-Diệp Vô Trần im lặng.
+“Nàng có nguy hiểm không?”
 
-Một lúc sau, ông chậm rãi đáp:
+“Dược đã giải. Kinh mạch được bảo vệ, nhưng thần hồn chịu chấn động. Cần chờ nàng tỉnh lại.”
 
-"Đệ tử hiểu."
+“Vậy là tốt…”
 
-Cố Tuyết Dao nhìn hai người.
+Diệp Vô Trần nói thế, nhưng ánh mắt vẫn nặng trĩu.
 
-Nàng ta bỗng cảm thấy một cơn tuyệt vọng chậm rãi tràn lên.
+Trước khi rời đi, ông hỏi:
 
-Không ai cứu nàng.
+“Sư phụ, đệ tử có thể làm gì?”
 
-Ngay cả sư phụ cũng không thể cứu nàng.
+“Phối hợp với Chấp Pháp Đường điều tra. Nếu Tuyết Dao thật sự liên quan, ngươi không được bao che.”
 
-Nàng ngẩng đầu, nước mắt giàn giụa.
+Diệp Vô Trần im lặng một lúc.
 
-"Tông chủ! Đệ tử thực sự chỉ vì quá ngưỡng mộ người!"
+Rồi ông chắp tay.
 
-Thẩm Thanh Huyền nhìn nàng ta.
-
-Ánh mắt lạnh lẽo.
-
-"Ngưỡng mộ không phải lý do để làm điều sai trái."
-
-Hắn đứng dậy.
-
-"Ngươi nên cảm tạ rằng Vô Ưu đã sống sót."
-
-Cố Tuyết Dao run lên.
-
-Thẩm Thanh Huyền nói tiếp:
-
-"Nhưng dù nàng không hề bị thương, riêng ý đồ ban đầu của ngươi cũng đã đủ để bị nghiêm trị."
-
-Hắn nhìn về phía trưởng lão Chấp Pháp Đường.
-
-"Thi hành."
-
-"Tuân lệnh!"
-
-Hai vị đệ tử chấp pháp lập tức tiến lên.
-
-Cố Tuyết Dao hoảng hốt.
-
-"Tông chủ!"
-
-Nàng ta cố vùng vẫy.
-
-"Tông chủ, xin người cho đệ tử thêm một cơ hội!"
-
-Thẩm Thanh Huyền không quay đầu.
-
-Hắn chậm rãi bước xuống bậc thềm.
-
-Áo trắng lướt qua nền đá.
-
-Không một lần ngoảnh lại.
+“Vâng.”
 
 ***
 
-## IX. Một người được giữ lại
+Đêm ấy, trưởng lão Dược Đường đến kiểm tra cho Tô Tiểu Uyển.
 
-Khi Thẩm Thanh Huyền trở về Thanh Huyền Phong, trời đã gần tối.
+Sau khi xác nhận dược tính đã được giải hết, thần hồn cũng dần ổn định, ông mới thưa:
 
-Ánh chiều phủ một màu vàng nhạt lên những mái ngói.
+“Vô Ưu đã qua cơn nguy hiểm. Nhưng khi nào tỉnh lại, hiện chưa thể khẳng định.”
 
-Gió núi thổi qua rừng trúc, mang theo mùi hương thanh mát.
+Thẩm Thanh Huyền hỏi:
 
-Hắn bước vào gian phòng nơi Tiểu Uyển đang nghỉ.
+“Có thể kéo dài bao lâu?”
 
-Trên giường, nàng đã tỉnh.
-
-Một vị sư tỷ phụ trách nội vụ vừa mang thuốc đến, thấy tông chủ trở về liền cúi người hành lễ.
-
-"Bái kiến tông chủ."
-
-"Thuốc đã uống chưa?"
-
-"Dạ, Vô Ưu sư muội đã dùng rồi ạ."
-
-Thẩm Thanh Huyền khẽ gật đầu.
-
-"Ngươi lui xuống đi."
-
-"Tuân lệnh."
-
-Vị sư tỷ nhẹ nhàng rời phòng.
-
-Đợi tiếng bước chân đi xa, Thẩm Thanh Huyền mới tiến đến bên giường.
-
-Tô Tiểu Uyển nhìn hắn.
-
-Đôi mắt tím biếc lập tức sáng lên.
-
-"Sư tôn!"
-
-Thẩm Thanh Huyền khẽ gật đầu.
-
-"Khỏe hơn chưa?"
-
-"Dạ, khá hơn nhiều rồi ạ."
-
-Nàng ngồi dậy một chút.
-
-"Tiểu Uyển đã uống thuốc rất ngoan."
-
-Hắn nhìn nàng.
-
-Khóe môi thoáng cong.
-
-"Ta biết."
-
-Nàng chớp mắt.
-
-"Sư tôn đi đâu vậy ạ?"
-
-"Xử lý một ít chuyện trong tông môn."
-
-"Dạ..."
-
-Nàng nhìn hắn một lát.
-
-Rồi bất giác hỏi:
-
-"Cố sư tỷ đâu rồi ạ?"
-
-Thẩm Thanh Huyền hơi ngừng.
-
-Tô Tiểu Uyển nhìn hắn.
-
-"Tiểu Uyển nghe nói bánh có thuốc... là thật sao ạ?"
-
-Hắn im lặng một lát.
-
-Rồi gật đầu.
-
-"Thật."
-
-Nàng ngẩn ra.
-
-Một lúc sau, nàng cúi mắt.
-
-"Sư tỷ ấy..."
-
-Nàng không nói hết.
-
-Thẩm Thanh Huyền ngồi xuống bên giường.
-
-"Tiểu Uyển."
-
-"Dạ?"
-
-"Chuyện này Chấp Pháp Đường đã điều tra rõ. Cố Tuyết Dao cố ý bỏ dược vào bánh, nhưng người nàng ta muốn hại vốn không phải ngươi."
-
-Tô Tiểu Uyển ngẩng đầu.
-
-"Vậy là ai ạ?"
-
-Thẩm Thanh Huyền nhìn nàng.
-
-Một lúc sau mới đáp:
-
-"Ta."
-
-Nàng sững người.
-
-"Sư tôn?"
-
-"Ừ."
-
-Hắn không kể chi tiết những ý đồ xấu xa của Cố Tuyết Dao.
-
-Chỉ nói rõ rằng nàng ta muốn dùng dược vật để khiến hắn mất khả năng tự chủ, sau đó lợi dụng tình trạng ấy.
-
-Tô Tiểu Uyển nghe xong, sắc mặt chậm rãi thay đổi.
-
-Nàng nhìn hắn.
-
-Một lúc lâu sau mới khẽ hỏi:
-
-"Sư tôn... có bị sao không ạ?"
-
-Thẩm Thanh Huyền thoáng ngẩn ra.
-
-Hắn đã nghĩ nàng sẽ tức giận.
-
-Sẽ thất vọng.
-
-Hoặc sẽ hỏi vì sao Cố Tuyết Dao lại làm chuyện ấy.
-
-Nhưng câu đầu tiên nàng hỏi lại là hắn có bị thương hay không.
-
-Hắn chậm rãi đáp:
-
-"Không."
-
-Tô Tiểu Uyển khẽ thở ra.
-
-"Vậy thì tốt quá."
-
-Thẩm Thanh Huyền nhìn nàng.
-
-Trong lòng lại xuất hiện cảm giác mềm mại quen thuộc.
-
-Nàng vẫn còn yếu.
-
-Vậy mà điều đầu tiên nghĩ đến lại là hắn.
-
-Hắn khẽ nói:
-
-"Người bị thương là ngươi."
-
-Tô Tiểu Uyển chớp mắt.
-
-Rồi nhỏ giọng:
-
-"Nhưng sư tôn không sao là tốt rồi."
+“Có thể ngày mai, cũng có thể lâu hơn.”
 
 Hắn im lặng.
 
-Một lúc sau, chậm rãi đáp:
+Trưởng lão Dược Đường nhìn sắc mặt hắn, khẽ khuyên:
 
-"Tiểu Uyển."
+“Tông chủ đã hao tổn nhiều linh lực. Chi bằng để đệ tử chăm sóc Vô Ưu, người nghỉ ngơi một lát.”
 
-"Dạ?"
+“Không cần.”
 
-"Ngươi cũng rất quan trọng."
+Thẩm Thanh Huyền ngồi xuống bên giường.
 
-Nàng ngẩn ra.
-
-Thẩm Thanh Huyền nhìn thẳng vào mắt nàng.
-
-"Cho nên sau này, đồ người khác mang đến không rõ nguồn gốc, đừng tùy tiện dùng."
-
-Tô Tiểu Uyển ngoan ngoãn gật đầu.
-
-"Dạ."
-
-Nàng nghĩ một lát.
-
-"Nhưng hôm ấy là sư tôn cho phép con ăn mà..."
-
-Vừa nói xong, nàng lập tức khựng lại.
-
-Nàng vội vàng xua tay.
-
-"Con không có ý trách người đâu ạ!"
-
-Thẩm Thanh Huyền nhìn nàng.
-
-Rồi chậm rãi đáp:
-
-"Ta biết."
-
-Hắn dừng một chút.
-
-"Chuyện ấy là ta sơ suất."
-
-Tô Tiểu Uyển ngẩng đầu.
-
-"Sư tôn..."
-
-"Ta đã nhận lấy hộp bánh, lại không kiểm tra cẩn thận trước khi đưa cho ngươi."
-
-Giọng hắn rất nhẹ.
-
-"Suýt nữa khiến ngươi mất mạng."
-
-Nàng nhìn hắn.
-
-Một lúc lâu sau, chậm rãi đưa tay nắm lấy góc tay áo trắng.
-
-"Sư tôn."
-
-"Ừ?"
-
-"Tiểu Uyển không trách người."
-
-Hắn cúi mắt.
-
-Nàng nhìn hắn bằng đôi mắt tím biếc rất trong.
-
-"Người đã cứu con mà."
-
-Thẩm Thanh Huyền im lặng.
-
-Tô Tiểu Uyển khẽ mỉm cười.
-
-"Với lại, con còn muốn học với sư tôn lâu lắm."
-
-Hắn nhìn nàng.
-
-Một lúc sau mới khẽ hỏi:
-
-"Bao lâu?"
-
-Tô Tiểu Uyển suy nghĩ.
-
-"Rất lâu ạ."
-
-"Rất lâu là bao lâu?"
-
-Nàng chớp mắt.
-
-Dường như không ngờ sư tôn lại hỏi nghiêm túc như vậy.
-
-Một lúc sau, nàng mới đáp:
-
-"Đến khi Tiểu Uyển học được hết những gì sư tôn muốn dạy."
-
-Thẩm Thanh Huyền nhìn nàng.
-
-Rồi khẽ cười.
-
-"Nếu ta có rất nhiều điều muốn dạy thì sao?"
-
-Nàng ngẩn ra.
-
-Sau đó cũng bật cười.
-
-"Vậy Tiểu Uyển sẽ học rất lâu!"
-
-Thẩm Thanh Huyền nhìn nụ cười ấy.
-
-Trong lòng chợt xuất hiện một cảm giác rất đỗi bình yên.
-
-Hai ngày trước, hắn chỉ mong nàng tỉnh lại.
-
-Giờ đây, nàng đã ngồi trước mặt.
-
-Có thể nói chuyện.
-
-Có thể mỉm cười.
-
-Có thể tiếp tục đặt ra những câu hỏi ngây ngô.
-
-Hắn không cần điều gì hơn trong khoảnh khắc ấy.
-
-Thẩm Thanh Huyền chậm rãi nâng tay, nhẹ nhàng chỉnh lại góc chăn.
-
-"Được."
-
-Hắn nói rất khẽ.
-
-"Vậy cứ học từ từ."
-
-Tô Tiểu Uyển nhìn hắn.
-
-Đôi mắt cong cong.
-
-"Dạ, sư tôn."
+“Ta ở đây.”
 
 ***
 
-Đêm xuống.
+Sáng hôm sau, Tô Tiểu Uyển vẫn chưa tỉnh.
 
-Sau khi Tiểu Uyển ngủ lại, Thẩm Thanh Huyền trở về thư phòng.
+Chấp Pháp Đường gửi ngọc giản báo cáo kết quả điều tra ban đầu: nguyên liệu bánh do Cố Tuyết Dao tự chuẩn bị; trong đồ vật nàng ta cất giữ tìm được dược vật có dấu vết linh khí tương đồng.
 
-Trên bàn trà vẫn còn hộp bánh hoa quế hôm ấy.
+Thẩm Thanh Huyền đọc xong, chỉ dặn:
 
-Hộp bánh đã được Chấp Pháp Đường niêm phong, sau khi điều tra xong mới trả lại làm vật chứng để hắn kiểm tra.
+“Tiếp tục điều tra. Không được ép cung. Ta muốn chứng cứ rõ ràng.”
 
-Hắn nhìn chiếc hộp gỗ sơn đỏ.
+Đặt ngọc giản xuống, hắn lại nhìn người trên giường.
 
-Một lúc lâu sau, khẽ nâng tay.
+Mạch tượng nàng ổn định. Thần hồn không còn dấu hiệu suy yếu.
 
-Ngọn linh hỏa xanh nhạt bùng lên.
+Nhưng nàng vẫn nằm yên.
 
-Chiếc hộp cùng số bánh còn lại lập tức hóa thành tro bụi.
+Thẩm Thanh Huyền từng đối diện rất nhiều thương tích nghiêm trọng, cũng từng cứu những người cận kề cái chết. Hắn hiểu tình trạng hiện tại của nàng, hiểu rằng không thể ép thần hồn tỉnh lại trước khi hồi phục.
 
-Không để lại dấu vết.
+Vậy mà hắn vẫn không an tâm.
 
-Thẩm Thanh Huyền lặng lẽ nhìn làn tro tan biến trong không khí.
+Hắn nhớ chiều hôm qua, khi nàng hỏi có được ăn bánh hay không.
 
-Hắn đã xử lý xong Cố Tuyết Dao.
+*“Ngươi thích thì ăn đi.”*
 
-Tông môn đã có kết luận.
+Chỉ một câu nói.
 
-Tiểu Uyển cũng đã tỉnh lại.
+Nếu lúc ấy hắn kiểm tra hộp bánh trước…
 
-Mọi chuyện dường như đã kết thúc.
+Thẩm Thanh Huyền đưa tay chỉnh lại góc chăn cho nàng.
 
-Nhưng trong lòng hắn, có một điều vừa bắt đầu.
+“Tiểu Uyển.”
 
-Hắn nhớ đến hai ngày vừa qua.
+Không có tiếng đáp.
 
-Nhớ đến cảm giác bất lực khi nhìn nàng hôn mê.
+Hắn khẽ nói:
 
-Nhớ đến nỗi sợ hãi khi nghĩ rằng nàng có thể không bao giờ mở mắt nữa.
+“Lần sau ta sẽ cẩn thận hơn.”
 
-Và nhớ đến khoảnh khắc nàng tỉnh lại, nhẹ nhàng gọi một tiếng sư tôn.
+***
 
-Thẩm Thanh Huyền chậm rãi nhắm mắt.
+Ngày thứ hai trôi qua.
 
-Hắn đã nhận ra tình cảm của mình.
+Diệp Vô Trần mang đến một ít linh dược dưỡng thần. Thấy sư phụ vẫn ngồi bên giường, ông không khỏi lo lắng.
 
-Không cần tiếp tục phủ nhận.
+“Sư phụ, để đệ tử chăm sóc nàng một lát được không? Người đã ở đây suốt từ hôm qua.”
 
-Cũng không cần vội vàng nói ra.
+Thẩm Thanh Huyền lắc đầu.
 
-Nàng vẫn còn rất nhiều điều phải học.
+“Ngươi về nghỉ đi. Ta tự lo được.”
 
-Vẫn đang tập thích nghi với thế giới này.
+Diệp Vô Trần nhìn hắn, cuối cùng không khuyên thêm.
 
-Còn hắn, với thân phận sư tôn, cần giữ đúng lời hứa đã nhận lấy từ chén trà bái sư hôm ấy.
+Thẩm Thanh Huyền có tu vi thâm hậu, vài ngày không nghỉ ngơi chẳng đáng là bao.
 
-Hắn sẽ dạy nàng.
+Nhưng điều khiến Diệp Vô Trần lo lắng không phải thể lực của sư phụ.
 
-Bảo vệ nàng.
+Là ánh mắt hắn mỗi khi nhìn Vô Ưu.
 
-Và để nàng tự do lựa chọn con đường của chính mình.
+Ông chưa từng thấy sư phụ mình chờ đợi một người như thế.
 
-Còn phần tình cảm chưa thể nói thành lời...
+***
 
-Hắn có thể giữ lại trong lòng.
+Chiều xuống.
 
-Ít nhất là lúc này.
+Thẩm Thanh Huyền thay túi hương dưỡng thần bên gối nàng, điều chỉnh trận pháp rồi ngồi lại.
 
-Thẩm Thanh Huyền mở mắt.
+Mọi thứ đều ổn định.
 
-Ngoài cửa sổ, ánh trăng phủ lên biển mây trắng.
+Chỉ có nàng vẫn không tỉnh.
 
-Gió đêm nhẹ nhàng lay động những cành lê.
+“Tiểu Uyển.”
 
-Hắn nhìn về phía Lê Hoa Viện.
+Hắn khẽ gọi.
 
-Trong đầu chợt hiện lên nụ cười của tiểu cô nương khi chiều.
+“Sáng hôm qua, ngươi nói đã thử dẫn khí mười ba lần mà vẫn thất bại.”
 
-*"Vậy Tiểu Uyển sẽ học rất lâu!"*
+Hắn nhớ vẻ mặt nàng khi kể chuyện ấy. Rõ ràng thất vọng, nhưng chẳng bao lâu đã tự an ủi rằng ngày mai nhất định sẽ làm tốt hơn.
 
-Khóe môi hắn bất giác cong lên.
+“Chờ ngươi tỉnh lại, ta sẽ luyện cùng ngươi.”
 
-Rất lâu.
+Hắn dừng một lát.
 
-Đối với người tu tiên, hai chữ ấy có thể là hàng trăm, hàng nghìn năm.
+“Bao nhiêu lần cũng được.”
 
-Trước kia, hắn chưa từng nghĩ mình sẽ mong chờ một quãng thời gian dài như thế chỉ vì một người.
+Nhưng người vốn luôn có chuyện để hỏi hắn, lúc này lại không đáp một lời.
 
-Nhưng bây giờ...
+***
 
-Hắn lại cảm thấy, nếu mỗi ngày đều có thể nhìn thấy nàng bình an, vui vẻ, thì những tháng năm sắp tới hẳn sẽ không còn quá đỗi dài đằng đẵng.
+Đêm thứ hai.
 
-Thẩm Thanh Huyền khẽ nâng chén trà.
+Thẩm Thanh Huyền kiểm tra mạch tượng nàng thêm lần nữa.
 
-Hương trà nhàn nhạt lan trong không khí.
+Không có gì bất thường.
 
-Hắn nhìn về phía biển mây, ánh mắt dần trở nên ôn hòa.
+Theo lẽ thường, hắn chỉ cần kiên nhẫn chờ.
 
-"Tiểu Uyển..."
+Nhưng một ý nghĩ đột ngột xuất hiện.
 
-Tiếng gọi tan vào gió đêm.
+*Nếu nàng không tỉnh nữa thì sao?*
 
-Lần này, hắn không còn phải tự hỏi vì sao mình lại nhớ đến nàng.
+Hắn nhìn gương mặt đang say ngủ.
 
-Bởi hắn đã hiểu.
+Nàng mới đến Thanh Huyền Phong một tháng.
 
-*Có những người bước vào cuộc đời ta rất khẽ.*
+Một tháng, đối với cuộc đời dài đằng đẵng của hắn, chỉ như một cái chớp mắt.
 
-*Nhưng đến khi suýt đánh mất, ta mới biết sự hiện diện ấy đã trở thành điều không thể thiếu.*
+Vậy mà hắn đã không muốn nghĩ đến ngày nàng biến mất.
 
-Và từ đêm ấy, Thẩm Thanh Huyền đã có một điều mà hắn muốn giữ gìn hơn cả sự yên tĩnh của những năm tháng trước kia.
+Không còn ai ngồi đối diện hắn trong thư phòng.
 
-Một người.
+Không còn tiếng nàng gọi “Sư tôn” mỗi khi gặp điều khó hiểu.
 
-Một đôi mắt tím biếc.
+Không còn nụ cười vui vẻ chỉ vì được học một pháp thuật nhỏ.
 
-Và một tiếng gọi sư tôn mà hắn muốn được nghe thêm thật nhiều lần nữa.
+Hắn nhớ lần đầu nàng nâng chén trà bái sư.
+
+*“Xin sư tôn nhận trà.”*
+
+Khi ấy, hắn đã nhận lấy trách nhiệm bảo vệ và dạy dỗ nàng.
+
+Nhưng giờ đây, cảm giác đang đè nặng trong lòng hắn không còn đơn thuần là trách nhiệm.
+
+Hắn muốn nàng tỉnh lại.
+
+Muốn nghe nàng nói chuyện.
+
+Muốn nàng tiếp tục đến thư phòng mỗi chiều, ngồi bên bàn trà và kể những chuyện kỳ lạ về thế giới cũ.
+
+Muốn nàng ở lại.
+
+Thẩm Thanh Huyền lặng người.
+
+Đến tận lúc này, hắn mới nhìn rõ tình cảm đã âm thầm thay đổi trong lòng mình.
+
+**Hắn đã động lòng với Tô Tiểu Uyển.**
+
+Nhận ra điều ấy, hắn không thấy nhẹ nhõm.
+
+Nàng vừa bái hắn làm thầy. Nàng tin tưởng hắn, xem hắn là người có thể dựa vào giữa thế giới xa lạ.
+
+Hắn không thể vì tình cảm của bản thân mà khiến sự tin tưởng ấy trở thành gánh nặng cho nàng.
+
+Càng không thể mặc nhiên cho rằng nàng cũng có cùng tâm ý.
+
+Hơn nữa, nàng vẫn đang nằm trước mặt hắn, chưa biết khi nào mới tỉnh.
+
+Thẩm Thanh Huyền đưa tay nắm lấy bàn tay nhỏ đang đặt trên chăn.
+
+“Tiểu Uyển.”
+
+Hắn khẽ nói:
+
+“Ngươi đã hứa ngày mai sẽ đến học.”
+
+Không có tiếng đáp.
+
+“Ta còn chưa cho phép ngươi thất hứa.”
+
+Hắn cúi đầu, giọng dịu xuống.
+
+“Tỉnh lại đi.”
+
+Đêm ấy, hắn vẫn ngồi bên cạnh nàng.
+
+---
+
+### V. Một tiếng sư tôn
+
+Sáng ngày thứ ba, Tô Tiểu Uyển khẽ động ngón tay.
+
+Thẩm Thanh Huyền lập tức nhận ra.
+
+“Tiểu Uyển?”
+
+Hàng mi nàng run nhẹ.
+
+Một lúc sau, đôi mắt tím biếc chậm rãi mở ra.
+
+Nàng nhìn trần nhà, rồi nghiêng đầu về phía hắn.
+
+“Sư… tôn?”
+
+Thẩm Thanh Huyền nắm lấy cổ tay nàng, kiểm tra thần hồn và kinh mạch.
+
+Đến khi chắc chắn nàng đã qua cơn nguy hiểm, hắn mới buông tay.
+
+“Ừ. Ta đây.”
+
+Tô Tiểu Uyển nhìn hắn, giọng yếu ớt:
+
+“Con ngủ bao lâu rồi ạ?”
+
+“Hai ngày.”
+
+“Hai ngày?”
+
+Nàng ngẩn ra.
+
+Rồi chợt nhớ đến một chuyện.
+
+“Vậy… bài học hôm qua…”
+
+Thẩm Thanh Huyền nhìn nàng, vừa bất đắc dĩ vừa buồn cười.
+
+“Ngươi vừa tỉnh lại đã nghĩ đến bài học?”
+
+“Nhưng con nghỉ hai ngày rồi…”
+
+“Đợi khỏe lại mới học tiếp.”
+
+Tô Tiểu Uyển ngước mắt.
+
+“Sư tôn vẫn dạy con chứ ạ?”
+
+Hắn khẽ kéo chăn lên vai nàng.
+
+“Đương nhiên.”
+
+Nàng yên tâm, mỉm cười.
+
+Chỉ là một nụ cười rất yếu.
+
+Nhưng Thẩm Thanh Huyền đã chờ nó suốt hai ngày.
+
+Hắn cúi đầu.
+
+“Tiểu Uyển.”
+
+“Dạ?”
+
+“Đừng dọa ta như vậy nữa.”
+
+Tô Tiểu Uyển ngẩn người.
+
+Lúc này nàng mới chú ý đến đôi mắt xanh biếc của hắn.
+
+Mắt hắn có những tia đỏ rất nhạt, dáng vẻ cũng trầm hơn thường ngày.
+
+“Sư tôn… người không nghỉ ngơi sao?”
+
+“Không sao.”
+
+Nàng khẽ nhíu mày.
+
+Rồi đưa tay nắm lấy góc áo hắn.
+
+“Người cũng phải chăm sóc bản thân chứ.”
+
+Thẩm Thanh Huyền nhìn nàng.
+
+Nàng vừa trải qua một trận nguy hiểm, thân thể còn yếu đến mức nói vài câu đã mệt.
+
+Vậy mà vẫn lo cho hắn.
+
+Hắn không biết từ bao giờ, việc được nàng quan tâm lại khiến lòng mình mềm đi như thế.
+
+“Được,” hắn khẽ đáp.
+
+Tô Tiểu Uyển mỉm cười.
+
+“Vậy Tiểu Uyển yên tâm rồi.”
+
+Hắn nhìn nàng một lát rồi đứng dậy lấy thuốc.
+
+“Uống thuốc xong thì nghỉ tiếp. Chuyện học hành không được nhắc đến trong mấy ngày tới.”
+
+“Dạ…”
+
+Nàng ngoan ngoãn nhận chén thuốc.
+
+Đến lúc hắn quay đi, phía sau lại vang lên tiếng gọi:
+
+“Sư tôn.”
+
+“Ta nghe.”
+
+“May mà người ở đây.”
+
+Thẩm Thanh Huyền dừng bước.
+
+Hắn không quay lại ngay.
+
+Một lúc sau mới khẽ đáp:
+
+“Ừ.”
+
+*May mà ngươi tỉnh lại.*
+
+Hắn giữ câu ấy trong lòng.
+
+---
+
+### VI. Chính điện luận tội
+
+Chiều ngày thứ ba, sau khi xác nhận Tô Tiểu Uyển đã có thể tự nghỉ ngơi, Thẩm Thanh Huyền mới rời Thanh Huyền Phong.
+
+Tại Thanh Vân Chính Điện, các trưởng lão Chấp Pháp Đường đã có mặt đầy đủ.
+
+Cố Tuyết Dao quỳ giữa đại điện.
+
+Ba ngày bị tạm giam khiến sắc mặt nàng ta tiều tụy. Thấy Thẩm Thanh Huyền bước lên chủ vị, nàng ta vội cúi đầu.
+
+“Tông chủ…”
+
+Hắn không nhìn nàng ta.
+
+“Bẩm báo kết quả điều tra.”
+
+Trưởng lão Chấp Pháp Đường bước lên.
+
+“Bẩm tông chủ, dược vật trong bánh hoa quế đã được xác minh. Cố Tuyết Dao tự chuẩn bị nguyên liệu, trong đồ vật của nàng ta cũng tìm thấy dược vật cùng loại. Qua thẩm vấn, nàng ta đã thừa nhận việc bỏ thuốc.”
+
+Thẩm Thanh Huyền hỏi:
+
+“Mục đích?”
+
+“Muốn khiến tông chủ mất khả năng tự chủ để nhân cơ hội tiếp cận.”
+
+Đại điện lập tức xôn xao.
+
+Dùng tà dược để khống chế thần trí người khác đã là trọng tội, huống hồ đối tượng còn là tông chủ Thanh Vân Môn.
+
+Thẩm Thanh Huyền nhìn Cố Tuyết Dao.
+
+“Ngươi có thừa nhận?”
+
+Nàng ta run rẩy.
+
+“Đệ tử… nhất thời hồ đồ…”
+
+“Ta hỏi ngươi có thừa nhận hay không.”
+
+Cố Tuyết Dao cúi gằm đầu.
+
+“…Có.”
+
+“Ngươi có biết Vô Ưu đã hôn mê hai ngày không?”
+
+Nàng ta bật khóc.
+
+“Đệ tử không biết bánh sẽ bị Vô Ưu ăn! Đệ tử không có ý hại muội ấy!”
+
+Thẩm Thanh Huyền nhìn nàng ta.
+
+“Vậy nếu người ăn là ta, chuyện ấy liền không sao?”
+
+Cố Tuyết Dao nghẹn lời.
+
+“Tông chủ, đệ tử chỉ vì quá ngưỡng mộ người…”
+
+“Ngưỡng mộ?”
+
+Giọng hắn vẫn bình thản.
+
+“Ngươi muốn dùng thuốc khiến người khác không thể từ chối mình. Đó không phải ngưỡng mộ.”
+
+Cố Tuyết Dao cúi đầu khóc.
+
+“Đệ tử biết sai rồi…”
+
+“Ngươi có tình cảm với ai là chuyện của ngươi. Nhưng người ấy có quyền không đáp lại.”
+
+Hắn dừng một lát.
+
+“Ta không có tình cảm với ngươi. Trước kia không có, hiện tại cũng không.”
+
+Cố Tuyết Dao ngẩng phắt đầu.
+
+“Tông chủ…”
+
+Thẩm Thanh Huyền quay sang trưởng lão Chấp Pháp Đường.
+
+“Theo môn quy, tội này xử trí thế nào?”
+
+“Dùng tà dược mưu đồ khống chế người khác, lại khiến đồng môn suýt mất mạng, phải chịu trọng phạt.”
+
+Thẩm Thanh Huyền gật đầu.
+
+“Vậy thi hành trọng giới.”
+
+Hắn tuyên bố:
+
+“Tước tư cách đệ tử nội môn, thu hồi lệnh bài và mọi đãi ngộ của Cố Tuyết Dao. Giam tại Tư Quá Nhai ba năm, phong bế phần lớn linh lực trong thời gian chịu phạt.”
+
+“Sau khi mãn hạn, trục xuất khỏi Thanh Vân Môn.”
+
+Cố Tuyết Dao tái mặt.
+
+“Không! Tông chủ, xin người cho đệ tử một cơ hội!”
+
+Nàng ta quỳ bò về phía trước.
+
+“Đệ tử thật sự biết sai rồi!”
+
+Thấy Thẩm Thanh Huyền không đáp, nàng ta quay sang Diệp Vô Trần.
+
+“Sư phụ! Xin người cứu con!”
+
+Diệp Vô Trần đứng lặng.
+
+Ông nhìn đứa trẻ năm xưa mình từng đưa về từ những ngày lưu lạc.
+
+Tuyết Dao trước kia rất ngoan ngoãn, biết chăm sóc Minh Hy và Vô Ưu. Ông từng mong cả ba sẽ trưởng thành, tu luyện thành tài, sống một đời bình an.
+
+Không ngờ hôm nay, chính nàng lại làm ra chuyện như thế.
+
+“Tuyết Dao,” ông khẽ gọi.
+
+“Sư phụ, con biết sai rồi…”
+
+“Con có nhớ vì sao năm xưa ta đưa các con về Thanh Vân Môn không?”
+
+Cố Tuyết Dao khóc, không đáp.
+
+“Ta không muốn các con tiếp tục chịu đói rét, cũng mong các con học đạo để biết bảo vệ mình và người khác.”
+
+Diệp Vô Trần nhìn nàng, ánh mắt đau đớn.
+
+“Nhưng ta chưa từng dạy con rằng, muốn có được thứ gì thì có thể làm hại người khác.”
+
+“Sư phụ…”
+
+Diệp Vô Trần nhắm mắt một lát rồi quay sang Thẩm Thanh Huyền.
+
+“Đệ tử dạy dỗ không nghiêm, xin chịu trách nhiệm.”
+
+Thẩm Thanh Huyền nhìn ông.
+
+“Chấp Pháp Đường sẽ ghi nhận trách nhiệm quản giáo của ngươi.”
+
+“Vâng.”
+
+“Nhưng lỗi của Cố Tuyết Dao, không ai chịu thay được.”
+
+Diệp Vô Trần cúi đầu.
+
+“Đệ tử hiểu.”
+
+Thẩm Thanh Huyền đứng dậy.
+
+“Thi hành án phạt.”
+
+Cố Tuyết Dao tiếp tục cầu xin, nhưng hắn không thay đổi quyết định.
+
+Trước khi rời điện, hắn nói:
+
+“Dù Vô Ưu không hề bị thương, ý đồ dùng thuốc khống chế ta cũng đã là trọng tội.”
+
+Hắn không ngoảnh lại.
+
+Sau lưng, tiếng khóc của Cố Tuyết Dao vang lên giữa đại điện.
+
+Diệp Vô Trần đứng yên thật lâu.
+
+Ông đã cứu đứa trẻ ấy khỏi những ngày đói rét.
+
+Nhưng không thể cứu nàng khỏi hậu quả do chính mình gây ra.
+
+---
+
+### VII. Một người được giữ lại
+
+Khi Thẩm Thanh Huyền trở về, Tô Tiểu Uyển đã uống thuốc xong.
+
+Thấy hắn bước vào, nàng lập tức mỉm cười.
+
+“Sư tôn!”
+
+“Khỏe hơn chưa?”
+
+“Dạ, khá hơn rồi. Con uống thuốc rất ngoan đấy ạ.”
+
+Hắn ngồi xuống bên giường.
+
+“Ta biết.”
+
+Tô Tiểu Uyển nhìn hắn một lát.
+
+“Sư tôn đi đâu vậy?”
+
+“Xử lý chuyện trong tông môn.”
+
+Nàng ngập ngừng.
+
+“Có phải chuyện Cố sư tỷ không ạ?”
+
+Thẩm Thanh Huyền gật đầu.
+
+“Chấp Pháp Đường đã điều tra xong.”
+
+“Bánh thật sự có thuốc sao?”
+
+“Ừ.”
+
+Tô Tiểu Uyển cúi mắt.
+
+Nàng nhớ đến nụ cười dịu dàng của Cố Tuyết Dao khi mang bánh đến.
+
+Nhớ lời nàng ta nói hai người đã lớn lên cùng nhau.
+
+Nàng không có ký ức của Vô Ưu, nhưng vẫn cảm thấy buồn.
+
+“Vì sao sư tỷ lại làm thế?”
+
+Thẩm Thanh Huyền im lặng một lát.
+
+“Người nàng ta muốn dùng thuốc vốn là ta.”
+
+Tô Tiểu Uyển ngẩng phắt đầu.
+
+“Sư tôn?”
+
+Hắn kể lại nguyên do, lược đi những chi tiết không cần thiết.
+
+Nghe xong, sắc mặt nàng thay đổi.
+
+“Sư tôn… người có bị sao không ạ?”
+
+“Không.”
+
+Tô Tiểu Uyển lập tức thở phào.
+
+“Vậy thì tốt quá.”
+
+Thẩm Thanh Huyền nhìn nàng.
+
+“Người suýt mất mạng là ngươi.”
+
+“Nhưng sư tôn cũng có thể bị hại mà.”
+
+Nàng nói rất tự nhiên.
+
+“Con không muốn người gặp chuyện.”
+
+Hắn im lặng.
+
+Một câu nói đơn giản, nhưng khiến hắn nhớ đến hai ngày vừa qua.
+
+Khi nàng hôn mê, hắn chỉ mong nàng bình an.
+
+Bây giờ nàng tỉnh lại, điều đầu tiên quan tâm vẫn là hắn có bị thương hay không.
+
+Thẩm Thanh Huyền khẽ nói:
+
+“Tiểu Uyển, ngươi cũng rất quan trọng.”
+
+Nàng ngẩn ra.
+
+Hắn tiếp lời:
+
+“Sau này, đồ người khác mang đến không rõ nguồn gốc, không được tùy tiện dùng.”
+
+Tô Tiểu Uyển ngoan ngoãn gật đầu.
+
+Rồi chợt nhớ ra chuyện gì, nàng nhỏ giọng:
+
+“Nhưng hôm ấy sư tôn cho phép con ăn mà…”
+
+Nói xong, nàng vội xua tay.
+
+“Con không trách người đâu!”
+
+Thẩm Thanh Huyền nhìn nàng.
+
+“Ta biết.”
+
+Hắn dừng một lát.
+
+“Chuyện ấy là ta sơ suất.”
+
+“Sư tôn…”
+
+“Ta đã nhận hộp bánh mà không kiểm tra. Suýt nữa khiến ngươi mất mạng.”
+
+Tô Tiểu Uyển nhìn hắn.
+
+Một lúc sau, nàng đưa tay nắm lấy góc áo trắng.
+
+“Nhưng người đã cứu con mà.”
+
+Thẩm Thanh Huyền cúi mắt.
+
+Nàng mỉm cười.
+
+“Tiểu Uyển không trách người.”
+
+Hắn không đáp ngay.
+
+Có những chuyện, người được cứu có thể dễ dàng tha thứ, nhưng người cứu lại khó lòng quên được.
+
+Cuối cùng, hắn khẽ gật đầu.
+
+“Ta sẽ nhớ.”
+
+Tô Tiểu Uyển nhìn hắn, bỗng cười tươi hơn.
+
+“Với lại, con còn muốn học với sư tôn lâu lắm.”
+
+“Bao lâu?”
+
+Nàng suy nghĩ.
+
+“Rất lâu ạ.”
+
+“Nếu ta có rất nhiều điều muốn dạy thì sao?”
+
+“Vậy con sẽ học rất lâu!”
+
+Thẩm Thanh Huyền bật cười.
+
+Nàng cũng cười theo.
+
+Hai ngày trước, hắn đã nghĩ mình có thể không bao giờ nghe được tiếng cười ấy nữa.
+
+Giờ đây, nàng đang ngồi trước mặt hắn, vừa yếu ớt vừa vui vẻ, còn nghiêm túc hứa sẽ học rất lâu.
+
+Hắn chỉnh lại góc chăn cho nàng.
+
+“Được.”
+
+Giọng hắn dịu xuống.
+
+“Vậy cứ học từ từ.”
+
+Tô Tiểu Uyển ngoan ngoãn gật đầu.
+
+“Dạ, sư tôn.”
+
+***
+
+Đêm ấy, sau khi Tô Tiểu Uyển ngủ, Thẩm Thanh Huyền trở về thư phòng.
+
+Hộp bánh hoa quế đã được Chấp Pháp Đường trả lại sau khi hoàn tất điều tra.
+
+Hắn nhìn chiếc hộp sơn đỏ.
+
+Rồi nâng tay, dùng linh hỏa thiêu sạch.
+
+Mọi chuyện đã có kết luận.
+
+Cố Tuyết Dao phải chịu trách nhiệm về hành vi của mình. Tô Tiểu Uyển cũng đã qua nguy hiểm.
+
+Nhưng có một điều không thể trở lại như trước.
+
+Thẩm Thanh Huyền nhớ đến đêm thứ hai, khi nhìn nàng bất tỉnh và lần đầu tiên thực sự sợ mất đi một người.
+
+Hắn đã hiểu lòng mình.
+
+Điều ấy không khiến hắn muốn thay đổi cách đối xử với nàng.
+
+Nàng vẫn là đệ tử của hắn, vẫn cần thời gian để trưởng thành và thích nghi với Huyễn Giới. Nàng tin tưởng hắn, vì thế hắn càng phải giữ gìn sự tin tưởng ấy.
+
+Hắn sẽ tiếp tục dạy nàng.
+
+Tiếp tục bảo vệ nàng.
+
+Còn tình cảm chưa thể nói ra, hắn sẽ tự mình giữ lấy.
+
+Ít nhất, cho đến khi nàng có thể hiểu rõ lòng mình và tự do lựa chọn.
+
+Thẩm Thanh Huyền quay lại án thư.
+
+Trên bàn vẫn còn quyển sách hắn chuẩn bị cho buổi học hôm ấy.
+
+Hắn nhớ đến đốm linh quang nhỏ bé mà nàng đã cố gắng ngưng tụ suốt một tháng.
+
+Luyện Khí tầng một, dẫn khí còn chưa thuần thục. Vậy mà mỗi lần thất bại, nàng vẫn kiên trì bắt đầu lại.
+
+Hắn khẽ mỉm cười.
+
+Đợi nàng khỏe, hắn sẽ dạy nàng cách giữ đốm linh quang ấy ổn định lâu hơn.
+
+Không cần vội.
+
+Hắn có thể chờ.
+
+Ngày mai nàng vẫn phải nghỉ ngơi.
+
+Có lẽ vài ngày nữa mới có thể học tiếp.
+
+Không sao.
+
+Trước kia, những ngày tháng dài đằng đẵng trên Thanh Huyền Phong chỉ trôi qua giữa tông vụ và tu luyện.
+
+Bây giờ, hắn đã có thêm một điều để mong đợi.
+
+Một buổi chiều có người ôm sách đến thư phòng.
+
+Một câu hỏi đôi khi ngốc nghếch đến mức khiến hắn bất đắc dĩ.
+
+Và tiếng gọi trong trẻo quen thuộc:
+
+*“Sư tôn!”*
+
+Thẩm Thanh Huyền khép sách.
+
+Hắn đã quen đáp lại tiếng gọi ấy.
+
+Và từ hôm nay, hắn hiểu rằng mình muốn được nghe nó thêm thật nhiều lần nữa.
 
 ---
 
