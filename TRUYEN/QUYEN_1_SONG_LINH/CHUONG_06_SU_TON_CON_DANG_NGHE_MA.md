@@ -1,1225 +1,629 @@
 # HUYỄN GIỚI
-Quyển I — Song Linh
+*Quyển I — Song Linh*
 
-# Chương 6: Sư tôn, con đang nghe mà!
+# Chương 6 — Sư Tôn, Con Đang Nghe Mà!
 
-Thanh Vân Môn — Thanh Huyền Phong.
+Sáng hôm sau, Tô Tiểu Uyển thức dậy trong Lê Hoa Viện.
 
-Sáng hôm sau.
+Nàng nằm yên một lát, nhìn màn giường trắng trước mắt, rồi chợt nhớ ra hôm qua mình đã chính thức bái Thẩm Thanh Huyền làm sư phụ.
 
-Khi tia nắng đầu tiên xuyên qua những tán lê trong viện, Tô Tiểu Uyển đã tỉnh giấc.
-
-Nàng nằm trên chiếc giường gỗ trầm hương, ngẩn ngơ nhìn màn lụa trắng buông xuống trước mắt.
-
-Phải mất một lúc, nàng mới nhớ ra mình đang ở đâu.
-
-Lê Hoa Viện.
-
-Nơi ở mới của nàng trên Thanh Huyền Phong.
-
-Hôm qua, nàng đã chính thức bái Thẩm Thanh Huyền làm thầy.
-
-Từ nay, nàng không còn phải gọi hắn là Thẩm tông chủ nữa, mà có thể đường đường chính chính gọi một tiếng sư tôn.
-
-Nghĩ đến đây, khóe môi nàng bất giác cong lên.
+Từ nay, nàng có thể gọi chàng là sư tôn.
 
 "Sư tôn..."
 
-Nàng khẽ gọi thử, rồi tự mình bật cười.
+Nàng thử gọi một tiếng, sau đó tự bật cười.
 
-Hai tiếng ấy nghe thật thuận tai.
+Hai chữ ấy nghe thật thuận tai.
 
-Ở thế giới trước kia, nàng chỉ từng gọi người dạy mình là thầy giáo, cô giáo. Những danh xưng như sư phụ hay sư tôn, nàng chỉ biết đến qua phim ảnh và tiểu thuyết.
+Ở thế giới cũ, nàng chưa từng nghĩ có ngày mình sẽ trở thành đệ tử của một vị tiên nhân. Huống hồ vị tiên nhân ấy còn đẹp đến mức khiến người ta nhìn một lần liền khó quên.
 
-Không ngờ có một ngày, chính nàng lại trở thành đệ tử của một vị tiên nhân.
+Tô Tiểu Uyển kéo chăn che nửa mặt.
 
-Hơn nữa...
+Một lát sau, nàng bỗng ngồi bật dậy.
 
-Nàng kéo chăn lên che nửa mặt.
+"Chết rồi! Hôm nay còn phải đi học!"
 
-Vị tiên nhân ấy còn đẹp đến mức khó tin.
-
-Tô Tiểu Uyển nằm thêm một lát, rồi vội vàng ngồi dậy.
-
-Không được.
-
-Hôm nay là ngày đầu tiên học tu luyện.
-
-Nàng không thể đến muộn.
+Ngày đầu tiên làm đệ tử, nàng nhất định không thể đến muộn.
 
 ***
 
-Sau khi rửa mặt, chải tóc và thay một bộ y phục màu xanh nhạt, Tô Tiểu Uyển bắt đầu chuẩn bị sách vở.
+Trên bàn đã đặt sẵn những quyển sách do người phụ trách nội vụ mang tới tối qua.
 
-Trên bàn có mấy quyển sách được một vị sư tỷ phụ trách nội vụ mang đến từ tối qua.
+*Nhập Môn Dẫn Khí.*
 
-Nào là *Nhập Môn Dẫn Khí*, *Kinh Mạch Sơ Giải*, rồi cả *Thanh Vân Tâm Pháp*.
+*Kinh Mạch Sơ Giải.*
 
-Nàng lần lượt mở từng quyển.
+*Thanh Vân Tâm Pháp.*
 
-Chữ viết tuy không hoàn toàn giống chữ ở thế giới cũ, nhưng nhờ những ký ức và khả năng nhận biết ngôn ngữ còn lưu lại trong thân thể Vô Ưu, nàng vẫn có thể đọc hiểu phần lớn nội dung.
+Tô Tiểu Uyển mở từng quyển, chăm chú đọc.
 
-Chỉ là hiểu chữ không đồng nghĩa với hiểu nghĩa.
+Nhờ khả năng nhận biết ngôn ngữ còn lưu lại trong thân thể Vô Ưu, nàng có thể hiểu phần lớn chữ viết.
 
-Nào là khí hải, đan điền, linh căn, chu thiên...
+Nhưng hiểu chữ không có nghĩa là hiểu nội dung.
 
-Đọc đến đâu, nàng thấy đầu óc mình rối đến đó.
+Khí hải, đan điền, linh căn, chu thiên...
 
-Tô Tiểu Uyển chống cằm.
+Đọc được vài trang, nàng đã thấy đầu óc quay cuồng.
 
-"Đúng là không dễ chút nào..."
+"Kiến thức của tu tiên giới đúng là không dành cho người bình thường..."
 
-Nàng bỗng nhớ đến lời Thẩm Thanh Huyền hôm qua.
+Nàng chống cằm thở dài.
+
+Rồi chợt nhớ lời Thẩm Thanh Huyền hôm qua.
 
 *"Không hiểu thì hỏi."*
 
-Nghĩ vậy, nàng lập tức lấy giấy bút, cẩn thận ghi lại những điều bản thân không hiểu.
+Được thôi.
 
-Một lát sau, trước mặt nàng đã có một tờ giấy đầy những câu hỏi.
+Không hiểu thì hỏi.
 
-Nàng đọc lại, cảm thấy khá hài lòng.
+Nàng lập tức lấy giấy bút, ghi lại những điều mình chưa rõ.
 
-Ngày đầu tiên đi học, dù chưa hiểu gì, ít nhất cũng phải thể hiện thái độ nghiêm túc.
+Một lát sau, tờ giấy đã kín chữ.
 
-Thế là nàng ôm sách, mang theo tờ giấy ghi chú, vui vẻ rời khỏi Lê Hoa Viện.
+Tô Tiểu Uyển nhìn thành quả, hài lòng gật đầu.
+
+Ít nhất, nàng cũng có thái độ học tập nghiêm túc.
+
+Nàng ôm sách, mang theo giấy ghi chú, rời khỏi Lê Hoa Viện.
 
 ***
 
-Con đường từ Lê Hoa Viện đến chính viện không xa.
-
-Chỉ cần đi qua một rừng trúc nhỏ, men theo hành lang lát đá trắng là có thể nhìn thấy khu nhà nơi Thẩm Thanh Huyền thường ngày cư ngụ.
-
-Sáng sớm, Thanh Huyền Phong yên tĩnh đến lạ.
-
-Sương mỏng còn đọng trên lá trúc. Xa xa, biển mây cuộn dưới những đỉnh núi, thỉnh thoảng có vài con linh điểu sải cánh bay ngang.
-
-Tô Tiểu Uyển vừa đi vừa ngắm cảnh.
-
-Nàng cảm thấy nơi này thật giống tiên cảnh trong những bộ phim cổ trang từng xem.
-
-Chỉ có điều, lần này tất cả đều là thật.
-
-Gió núi cũng thật.
-
-Mùi cỏ cây cũng thật.
-
-Cả những viên đá hơi lạnh dưới đế giày cũng chân thực đến mức không thể nghi ngờ.
-
-Nàng đi qua cổng chính viện, nhìn quanh một vòng.
-
-Không có ai.
+Khi đến thư phòng, Tô Tiểu Uyển mới phát hiện nơi này không có ai.
 
 "Sư tôn?"
 
-Nàng khẽ gọi.
+Nàng đứng ngoài cửa gọi.
 
-Không có tiếng đáp.
+Không tiếng đáp.
 
-Nàng lại bước đến gần thư phòng.
+Nàng nhẹ nhàng gõ cửa, chờ thêm một lát rồi mới bước vào.
 
-Cửa phòng khép hờ.
+Bàn trà, án thư và những giá sách đều được sắp xếp ngay ngắn. Căn phòng sạch sẽ đến mức nàng chẳng dám tùy tiện chạm vào thứ gì.
 
-"Sư tôn, con là Tiểu Uyển ạ."
+"Sư tôn chắc đang bận..."
 
-Bên trong vẫn yên lặng.
+Hôm qua chàng đã dặn nàng mỗi sáng đến đây học, nhưng lại chưa nói rõ giờ nào.
 
-Tô Tiểu Uyển hơi nghiêng đầu.
+Nàng nghĩ, có lẽ chỉ cần đợi một lát.
 
-Chẳng lẽ sư tôn còn chưa dậy?
-
-Nàng lập tức cảm thấy suy nghĩ ấy không hợp lý.
-
-Một vị tiên nhân có tu vi thâm hậu như hắn, hẳn không giống người bình thường cần ngủ đủ tám tiếng mỗi ngày.
-
-Có khi nào hắn đang tu luyện không?
-
-Nàng đứng ngoài cửa suy nghĩ một lát, cuối cùng nhẹ nhàng gõ cửa.
-
-Không ai trả lời.
-
-Qua khe cửa, nàng nhìn thấy bàn trà quen thuộc đặt cạnh cửa sổ. Trên bàn có một bộ trà cụ bằng bạch ngọc, bên cạnh là án thư và những giá sách cao sát tường.
-
-Nhưng trong phòng không có bóng người.
-
-Nàng đành bước vào, cẩn thận đặt sách lên bàn trà.
-
-"Sư tôn chắc có việc bận..."
-
-Tô Tiểu Uyển nhìn quanh.
-
-Nàng không dám tùy tiện động vào đồ đạc của người khác, càng không dám lục xem những quyển cổ tịch trên án thư.
-
-Vì vậy, nàng chọn một chiếc ghế bên bàn trà, ngoan ngoãn ngồi xuống.
-
-Đợi một chút cũng không sao.
-
-Dù sao hôm qua sư tôn đã nói, mỗi sáng nàng có thể đến đây học.
-
-Hắn hẳn sẽ trở về thôi.
-
-Nàng lấy quyển *Nhập Môn Dẫn Khí* ra, lật đến trang đã đánh dấu.
-
-Bắt đầu đọc.
-
-***
-
-Cùng lúc ấy.
-
-Tại Thanh Vân Chính Điện, Thẩm Thanh Huyền đang ngồi trên chủ vị, trước mặt là một chồng ngọc giản và công văn cao quá nửa thước.
-
-Hai hàng trưởng lão, chấp sự lần lượt tiến lên bẩm báo.
-
-"Bẩm tông chủ, số linh thạch thu được từ ba linh quặng phía bắc tháng này đã được kiểm kê. Tuy nhiên, linh mạch tại Hàn Thạch Sơn có dấu hiệu suy giảm..."
-
-"Phái người đến khảo sát. Nếu linh mạch thực sự suy yếu, tạm dừng khai thác."
-
-"Vâng."
-
-Một vị chấp sự khác bước lên.
-
-"Bẩm tông chủ, kỳ tuyển chọn đệ tử ngoại môn sắp đến. Các đường đã trình danh sách khảo hạch, xin tông chủ xem xét."
-
-"Đưa cho Chấp Pháp Đường đối chiếu quy củ, sau đó trình lại."
-
-"Tuân mệnh."
-
-Tiếp đó là chuyện phân bổ đan dược, sửa chữa trận pháp hộ sơn, điều động đệ tử xuống núi lịch luyện.
-
-Thẩm Thanh Huyền xử lý từng việc một cách điềm tĩnh.
-
-Hắn không nói nhiều.
-
-Những chuyện thuộc quyền hạn của các trưởng lão, hắn để họ tự quyết định. Những việc liên quan đến an nguy tông môn, hắn mới trực tiếp đưa ra chỉ thị.
-
-Đối với hắn, đây là những công việc hết sức bình thường.
-
-Từ khi tiếp quản Thanh Vân Môn, hắn đã quen với việc mỗi sáng đến chính điện xử lý tông vụ.
-
-Thông thường, phải qua giờ Ngọ mới có thể trở về Thanh Huyền Phong.
-
-Hôm nay cũng không ngoại lệ.
-
-Chỉ là đến khi một trưởng lão bẩm báo về việc phân bổ tài nguyên tu luyện cho đệ tử mới, hắn bỗng nhớ đến một chuyện.
-
-Hôm qua, hắn đã dặn Tiểu Uyển mỗi sáng đến thư phòng học.
-
-Nhưng lại chưa nói rõ thời gian.
-
-Ngón tay đang cầm ngọc giản hơi dừng.
-
-Thẩm Thanh Huyền ngước mắt nhìn ra ngoài điện.
-
-Nắng đã lên cao.
-
-Hắn suy nghĩ một lát.
-
-Nha đầu ấy hẳn sẽ không đến sớm như vậy.
-
-Dù sao, hôm qua nàng vừa chuyển viện, còn cần thời gian thích nghi.
-
-Hắn thu hồi ánh mắt, tiếp tục xử lý công văn.
-
-Chỉ là lần này, tốc độ phê duyệt dường như nhanh hơn thường lệ đôi chút.
-
-***
-
-Ở thư phòng Thanh Huyền Phong, Tô Tiểu Uyển đã đọc hết ba trang sách.
-
-Nàng nhìn những hàng chữ trước mặt.
-
-Rồi nhìn tờ giấy ghi chú.
-
-Lại nhìn sách.
-
-"..."
-
-Sao càng đọc càng có nhiều câu hỏi thế này?
-
-Ban đầu nàng chỉ muốn hỏi sư tôn linh khí là gì.
-
-Nhưng đọc đến đoạn linh khí vận hành qua kinh mạch, nàng lại muốn biết vì sao người tu tiên có thể cảm nhận được linh khí.
-
-Đọc tiếp, nàng bắt đầu thắc mắc linh khí có giống năng lượng trong khoa học hay không.
-
-Sau đó lại phát hiện mình hoàn toàn không biết linh căn hoạt động như thế nào.
-
-Tô Tiểu Uyển thở dài.
-
-"Đúng là học một biết thêm mười..."
-
-Chỉ có điều, mười điều ấy đều là những thứ nàng chưa hiểu.
-
-Nàng đặt bút xuống, ngẩng đầu nhìn ra cửa.
-
-Sư tôn vẫn chưa về.
-
-Nàng đành tiếp tục đọc.
+Thế là Tô Tiểu Uyển chọn một chiếc ghế bên bàn trà, đặt sách xuống rồi bắt đầu đọc.
 
 Một trang.
 
 Hai trang.
 
-Rồi ba trang.
+Đến trang thứ ba, nàng đã viết thêm bốn câu hỏi.
 
-Ánh nắng ngoài cửa sổ dần dịch chuyển.
+"Linh khí có hình dạng không?"
 
-Gió núi thổi qua, mang theo mùi hương trầm nhàn nhạt trong phòng.
+"Nếu không nhìn thấy thì làm sao biết nó tồn tại?"
 
-Tô Tiểu Uyển chống cằm.
+"Kinh mạch có giống mạch máu không?"
 
-Mấy hàng chữ trước mắt bắt đầu nhòe đi.
+"Nếu linh khí đi sai đường thì..."
 
-Nàng chớp mắt, cố gắng tập trung.
+Nàng dừng bút.
 
-Không được ngủ.
+Vấn đề cuối cùng hình như hơi đáng sợ.
 
-Đây là ngày đầu tiên đi học.
+Nàng nhìn cửa.
 
-Nàng còn chưa gặp được sư tôn nữa.
+Sư tôn vẫn chưa về.
 
-Nghĩ vậy, nàng ngồi thẳng lưng, nghiêm túc đọc lại đoạn vừa rồi.
-
-*"Phàm dẫn khí nhập thể, trước tiên cần tĩnh tâm, điều tức, cảm ứng thiên địa linh khí..."*
-
-Nàng đọc thầm.
-
-Đọc thêm lần nữa.
-
-Rồi lại đọc...
-
-Một lúc sau, đầu nàng chậm rãi nghiêng sang bên.
-
-Bàn tay chống cằm trượt xuống.
-
-Nàng vội giật mình ngồi thẳng dậy.
-
-"Không được..."
-
-Nàng lẩm bẩm.
-
-Nhưng buổi sáng vốn dậy sớm, lại phải đọc những kiến thức hoàn toàn xa lạ, chẳng bao lâu cơn buồn ngủ đã quay trở lại.
-
-Cuối cùng, nàng gấp hai tay đặt lên mép bàn, định chỉ nằm nghỉ một lát.
-
-Một lát thôi.
-
-Đợi sư tôn về, nàng sẽ lập tức ngồi dậy.
-
-Nghĩ vậy, nàng nghiêng đầu tựa lên cánh tay.
-
-Mái tóc đen dài trượt xuống bên má.
-
-Hàng mi khẽ khép lại.
-
-Chẳng bao lâu, tiếng thở đã trở nên đều đặn.
-
-Trên bàn, quyển *Nhập Môn Dẫn Khí* vẫn mở ở trang thứ bảy.
-
-Bên cạnh là tờ giấy ghi đầy câu hỏi.
-
-Dòng cuối cùng còn chưa viết xong.
+Tô Tiểu Uyển đành đọc tiếp.
 
 ***
 
-## Một giấc ngủ giữa trưa
+Cùng lúc ấy, tại Thanh Vân Chính Điện, Thẩm Thanh Huyền đang xử lý tông vụ.
 
-Khi Thẩm Thanh Huyền trở về Thanh Huyền Phong, mặt trời đã qua đỉnh đầu.
+Linh mạch phía bắc có dấu hiệu suy yếu, kỳ tuyển chọn đệ tử mới sắp bắt đầu, một số trận pháp hộ sơn cần tu sửa.
 
-Hắn vừa xử lý xong công việc ở chính điện, trong tay còn cầm hai cuốn ngọc giản chưa kịp xem xét.
+Chàng nghe từng vị trưởng lão bẩm báo, lần lượt đưa ra quyết định.
 
-Đi qua hành lang, hắn nhận ra cửa thư phòng đang mở.
+"Cho người khảo sát linh mạch trước khi tiếp tục khai thác."
 
-Bước chân hơi dừng.
+"Vâng, tông chủ."
 
-Hắn nhớ rõ sáng nay trước khi rời đi, mình đã khép cửa.
+"Danh sách khảo hạch chuyển đến Chấp Pháp Đường đối chiếu quy củ."
 
-Chẳng lẽ có người đến?
+"Tuân mệnh."
 
-Thẩm Thanh Huyền bước vào.
+Những công việc ấy vốn rất quen thuộc.
 
-Rồi nhìn thấy một bóng dáng nhỏ nhắn đang nằm gục bên bàn trà.
+Thông thường, chàng phải đến quá giờ Ngọ mới có thể trở về Thanh Huyền Phong.
 
-Hắn thoáng ngẩn ra.
+Nhưng khi một trưởng lão nhắc đến việc phân bổ tài nguyên cho đệ tử mới, Thẩm Thanh Huyền chợt nhớ ra một chuyện.
+
+Hôm qua, chàng đã dặn Tiểu Uyển đến thư phòng học.
+
+Lại quên nói rõ thời gian.
+
+Ngón tay đang cầm ngọc giản hơi dừng.
+
+Chàng nhìn ra ngoài điện.
+
+Nắng đã lên cao.
+
+*Không biết nàng đã đến chưa.*
+
+Ý nghĩ vừa xuất hiện, chàng liền cảm thấy có phần buồn cười.
+
+Nàng mới chuyển đến Lê Hoa Viện, hẳn còn nhiều việc cần thu xếp. Có lẽ sẽ không đến sớm như vậy.
+
+Thẩm Thanh Huyền thu hồi ánh mắt, tiếp tục xử lý công văn.
+
+Chỉ là những việc còn lại, chàng giải quyết nhanh hơn thường lệ.
+
+***
+
+Tô Tiểu Uyển không biết sư tôn đang nghĩ đến mình.
+
+Nàng đã đọc đến trang thứ bảy.
+
+Những hàng chữ trước mắt dần trở nên khó hiểu.
+
+Nàng chống cằm, cố nhớ lại đoạn vừa đọc.
+
+*Phàm dẫn khí nhập thể, trước tiên cần tĩnh tâm, điều tức...*
+
+Nàng đọc thầm lần nữa.
+
+Rồi lần nữa.
+
+Đầu nàng chậm rãi nghiêng sang một bên.
+
+"Không được..."
+
+Tô Tiểu Uyển giật mình ngồi thẳng.
+
+Hôm nay là buổi học đầu tiên.
+
+Sư tôn còn chưa về, sao nàng có thể ngủ trước được?
+
+Nàng nghiêm túc đọc thêm một đoạn.
+
+Nhưng chẳng bao lâu, mí mắt lại nặng trĩu.
+
+Cuối cùng, nàng gấp hai tay đặt trên bàn.
+
+*Chỉ nghỉ một lát thôi.*
+
+*Nghe tiếng bước chân là mình tỉnh ngay.*
+
+Nàng tựa má lên cánh tay.
+
+Mái tóc đen trượt xuống bên má.
+
+Chẳng bao lâu, hơi thở đã trở nên đều đặn.
+
+Trước mặt nàng, quyển sách vẫn mở.
+
+Tờ giấy ghi chú nằm ngay bên cạnh, dòng cuối cùng còn dang dở.
+
+***
+
+Đến khi Thẩm Thanh Huyền trở về, mặt trời đã qua đỉnh đầu.
+
+Chàng bước vào thư phòng, vừa định đặt ngọc giản xuống thì nhìn thấy thiếu nữ nằm gục bên bàn trà.
+
+Bước chân khựng lại.
 
 Tiểu Uyển.
 
 Nàng đã đến thật.
 
-Không chỉ đến, mà còn ôm sách ngồi đợi đến mức ngủ quên.
+Không chỉ đến, còn đợi đến mức ngủ quên.
 
-Thẩm Thanh Huyền đặt ngọc giản xuống án thư, bước đến gần.
+Thẩm Thanh Huyền bước lại gần.
 
-Nàng đang ngủ rất say.
+Nàng ngủ rất say. Một bên má tì lên cánh tay, hàng mi dài khép kín. Bàn tay còn lại đặt cạnh quyển sách, đầu ngón tay vẫn chạm vào mép giấy.
 
-Một bên má tựa trên cánh tay, đôi môi hồng nhạt hơi hé mở. Hàng mi dài phủ xuống, để lại bóng mờ trên làn da trắng mịn.
+Chàng nhìn những dòng ghi chú bên cạnh.
 
-Mấy sợi tóc đen rơi xuống trước mặt, khẽ lay động theo hơi thở.
+Câu hỏi nhiều đến mức gần kín cả trang.
 
-Bàn tay còn lại vẫn đặt trên quyển sách đang mở, đầu ngón tay chạm vào một dòng chữ, như thể trước khi ngủ nàng vẫn đang cố gắng ghi nhớ nội dung.
+Có những điều rất cơ bản, nhưng cách nàng đặt vấn đề lại khác thường.
 
-Thẩm Thanh Huyền nhìn nàng.
+Nàng không chỉ muốn biết phải làm thế nào.
 
-Rồi nhìn những quyển sách trên bàn.
+Nàng còn muốn hiểu vì sao.
 
-Bên cạnh còn có một tờ giấy nhỏ.
-
-Hắn đưa mắt đọc qua.
-
-*"Linh khí có hình dạng không?"*
-
-*"Nếu không nhìn thấy thì làm sao biết nó tồn tại?"*
-
-*"Kinh mạch có giống mạch máu không?"*
-
-*"Có phải ai cũng cảm nhận được linh khí?"*
-
-Cuối cùng là một dòng chữ viết dở.
+Thẩm Thanh Huyền cầm tờ giấy lên, đọc đến câu cuối cùng.
 
 *"Nếu linh khí đi sai đường thì..."*
 
-Thẩm Thanh Huyền khẽ nhướng mày.
+Chàng khẽ nhướng mày.
 
-Những câu hỏi ấy rất cơ bản.
+Câu hỏi chưa viết hết, nhưng chàng đã đoán được phần còn lại.
 
-Có vài câu thậm chí đối với đệ tử mới nhập môn cũng chẳng cần giải thích quá nhiều.
+Đúng là một tiểu cô nương có nhiều điều muốn biết.
 
-Nhưng cách nàng đặt vấn đề lại có chút khác thường.
+Chàng đặt giấy xuống.
 
-Dường như nàng không chỉ muốn biết phải làm thế nào, mà còn muốn hiểu vì sao mọi chuyện lại vận hành như vậy.
+Rồi nhìn nàng.
 
-Hắn nhìn tờ giấy thêm một lát.
+Hôm qua, chính chàng đã nói mỗi sáng nàng có thể đến học.
 
-Rồi chợt nhớ đến lời dặn hôm qua.
+Vậy mà hôm nay lại để nàng đợi suốt nửa ngày.
 
-*"Từ ngày mai, mỗi sáng ngươi đến thư phòng của ta học."*
+Là chàng sơ suất.
 
-Thẩm Thanh Huyền im lặng.
+"Tiểu Uyển..."
 
-Hóa ra nàng đã thật sự ghi nhớ.
+Chàng vừa cất tiếng, thiếu nữ đã khẽ động đậy.
 
-Hắn vô thức nhìn ra ngoài cửa sổ.
+Nàng nhíu mày, đổi tư thế, rồi lại ngủ tiếp.
 
-Nắng trưa đã phủ đầy sân.
+Một sợi tóc rơi xuống sống mũi khiến nàng vô thức chun mũi.
 
-Nàng đến từ lúc nào?
+Thẩm Thanh Huyền im lặng nhìn.
 
-Giờ Thìn?
+Khóe môi thoáng cong.
 
-Hay còn sớm hơn?
+Chàng vốn định gọi nàng dậy.
 
-Nghĩ đến việc tiểu cô nương ôm sách đến tìm mình, không thấy ai, lại ngoan ngoãn ngồi đợi suốt cả buổi sáng, trong lòng hắn không khỏi dâng lên chút áy náy.
+Nhưng nghĩ đến việc nàng đã đợi từ sáng, lại nhìn vẻ mệt mỏi còn sót trên gương mặt ấy, chàng đổi ý.
 
-Là hắn sơ suất.
+*Để nàng ngủ thêm một lát.*
 
-Đã dặn nàng đến học, lại quên sắp xếp thời gian.
-
-Thẩm Thanh Huyền cúi xuống, định gọi nàng dậy.
-
-"Tiểu..."
-
-Nhưng vừa mở lời, hắn bỗng dừng lại.
-
-Tô Tiểu Uyển hơi động đậy.
-
-Nàng khẽ nhíu mày trong giấc ngủ, rồi nghiêng mặt sang hướng khác, tìm một tư thế thoải mái hơn.
-
-Một sợi tóc rơi xuống sống mũi.
-
-Nàng vô thức chun mũi, giống như bị thứ gì đó làm phiền.
-
-Thẩm Thanh Huyền nhìn động tác nhỏ ấy.
-
-Không hiểu vì sao, hắn lại cảm thấy có chút buồn cười.
-
-Tiểu nha đầu này...
-
-Ban ngày tỉnh táo thì luôn có vô số câu hỏi kỳ lạ.
-
-Đến lúc ngủ, ngay cả một sợi tóc cũng có thể khiến nàng nhăn mặt.
-
-Hắn đứng yên một lát.
-
-Đáng lẽ nên đánh thức nàng.
-
-Dù sao đã qua giờ Ngọ, nàng hẳn còn chưa dùng bữa.
-
-Nhưng nhìn gương mặt đang ngủ say ấy, hắn lại chần chừ.
-
-Có lẽ để nàng nghỉ thêm một chút cũng không sao.
-
-Việc học không cần gấp.
-
-Hắn kéo chiếc ghế bên cạnh, nhẹ nhàng ngồi xuống.
+Việc học không cần vội.
 
 ***
 
-Trong thư phòng yên tĩnh, chỉ còn tiếng gió lướt qua rèm trúc.
+Thẩm Thanh Huyền ngồi xuống chiếc ghế bên cạnh, mở ngọc giản.
 
-Thẩm Thanh Huyền vốn định lấy ngọc giản ra xem.
+Chàng đọc được một đoạn thì nhận ra thiếu nữ hơi co vai.
 
-Nhưng khi vừa mở được một đoạn, ánh mắt hắn lại vô thức dừng trên người thiếu nữ đang ngủ bên cạnh.
+Cửa sổ đang mở.
 
-Nàng vẫn nằm gục trên bàn.
+Thanh Huyền Phong ở nơi cao, tiết trời buổi trưa vẫn có chút lạnh.
 
-Gương mặt nghiêng về phía hắn, đôi má hơi ửng hồng vì tì lên cánh tay quá lâu.
+Đối với chàng, điều ấy chẳng đáng kể.
 
-Thẩm Thanh Huyền đã từng gặp không ít nữ tử có dung mạo xuất chúng.
+Nhưng Tiểu Uyển vừa trải qua thiên kiếp, lại chưa biết vận hành linh khí.
 
-Nhưng khi nhìn nàng lúc này, điều khiến hắn lưu tâm lại không phải những đường nét tinh xảo ấy.
+Chàng đứng dậy, khép bớt cửa sổ.
 
-Mà là vẻ yên bình hiếm thấy.
-
-Không có sự bất an.
-
-Không có ánh mắt dè chừng.
-
-Cũng không có dáng vẻ cố gắng tỏ ra bình tĩnh như những ngày đầu nàng tỉnh lại.
-
-Nàng chỉ đơn giản là ngủ.
-
-Ngủ ngay trong thư phòng của hắn, bên cạnh những cuốn sách còn chưa đọc hết, như thể nơi đây vốn là một chỗ hết sức an toàn.
-
-Thẩm Thanh Huyền chợt nhớ đến lần đầu gặp nàng.
-
-Khi ấy, nàng hoảng hốt trước những điều xa lạ, ngay cả việc nhìn thấy dung mạo mới của bản thân cũng khiến nàng ngỡ ngàng.
-
-Sau đó là chuyện Đường Minh Hy.
-
-Nàng chạy đến nép sau lưng hắn, bàn tay nắm chặt góc áo, như sợ người khác lại tiến đến gần.
-
-Mới qua một ngày.
-
-Giờ đây nàng đã có thể ngủ say trong thư phòng của hắn.
-
-Nghĩ đến đây, ánh mắt Thẩm Thanh Huyền bất giác dịu xuống.
-
-Có lẽ nàng đã dần quen với nơi này.
-
-Hắn cũng thấy yên tâm hơn đôi chút.
-
-Một cơn gió từ cửa sổ thổi vào.
-
-Rèm trúc khẽ lay động.
-
-Tô Tiểu Uyển trong giấc ngủ hơi co vai, đầu ngón tay vô thức nắm lấy tay áo mình.
-
-Thẩm Thanh Huyền nhận ra.
-
-Hắn nhìn về phía cửa sổ.
-
-Tiết trời tuy đã ấm, nhưng Thanh Huyền Phong nằm ở nơi cao, gió núi vẫn mang theo hơi lạnh.
-
-Đối với tu sĩ có linh lực hộ thể, chút gió ấy không đáng kể.
-
-Nhưng nàng hiện giờ chưa biết cách vận hành linh khí.
-
-Hắn đứng dậy, bước đến khép bớt cửa sổ.
-
-Sau đó nhìn nàng một lát, lại đưa tay cởi chiếc áo choàng mỏng khoác ngoài.
-
-Áo được dệt từ loại linh tơ mềm nhẹ, có khả năng giữ ấm và ngăn hơi lạnh.
-
-Hắn nhẹ nhàng phủ lên vai nàng.
-
-Động tác rất chậm, tránh làm nàng tỉnh giấc.
+Sau đó cởi chiếc áo choàng mỏng khoác ngoài, nhẹ nhàng phủ lên vai nàng.
 
 Tô Tiểu Uyển khẽ cựa mình.
 
-Đầu nàng hơi nghiêng sang một bên.
+Chàng dừng tay, đợi nàng ngủ yên rồi mới kéo vạt áo choàng phủ kín hai vai.
 
-Thẩm Thanh Huyền dừng tay.
+Khi cúi xuống, chàng nhìn thấy sợi tóc đen vẫn vương trên má nàng.
 
-Đợi nàng yên ổn trở lại, hắn mới kéo vạt áo phủ kín phần vai đang lộ ra ngoài.
+Bàn tay thoáng nâng lên.
 
-Một sợi tóc đen vẫn vương trên má nàng.
+Nhưng rồi chàng dừng lại.
 
-Hắn nhìn sợi tóc ấy.
+Chàng và nàng dù đã là sư đồ, rốt cuộc cũng mới quen biết không lâu.
 
-Bàn tay hơi nâng lên, nhưng rồi dừng lại giữa chừng.
+Không cần thiết phải chạm vào nàng chỉ vì một sợi tóc.
 
-Cuối cùng, hắn chỉ nhẹ nhàng thu tay về.
+Thẩm Thanh Huyền thu tay.
 
-Không cần thiết phải đánh thức nàng vì chuyện nhỏ ấy.
+Chàng trở về chỗ ngồi, tiếp tục xem ngọc giản.
 
-Hắn ngồi xuống chiếc ghế đối diện.
+Nhưng một lúc sau, ánh mắt lại vô thức dừng trên người thiếu nữ đang ngủ.
 
-Lần này, hắn không mở ngọc giản ngay.
+Chàng nhớ đến lần đầu gặp nàng.
 
-Chỉ lặng lẽ nhìn nàng thêm một lát.
+Khi ấy, nàng vừa tỉnh dậy, trong mắt đầy hoang mang.
 
-Trong lòng bỗng xuất hiện một ý nghĩ.
+Đến lúc nói ra thân phận thật, nàng đã cố gắng kìm nước mắt, nhưng cuối cùng vẫn không giấu nổi nỗi sợ.
 
-Nàng lúc ngủ...
+Rồi khi Đường Minh Hy đến tìm, nàng lại nép sau lưng chàng, nắm chặt tay áo như thể đó là nơi duy nhất có thể trốn tránh.
 
-Quả thực rất đáng yêu.
+Vậy mà hôm nay, nàng đã có thể ngủ say trong thư phòng của chàng.
 
-Ý nghĩ ấy khiến chính hắn hơi ngẩn ra.
+Không đề phòng.
 
-Thẩm Thanh Huyền khẽ cụp mắt.
+Không bất an.
 
-Hắn đã sống qua nhiều năm tháng, gặp biết bao người, nhưng rất ít khi dành thời gian ngắm một người đang ngủ.
+Chỉ đơn giản là ngủ.
 
-Huống hồ còn là một tiểu đệ tử vừa mới thu nhận.
+Thẩm Thanh Huyền nhìn nàng thêm một lát.
 
-Đáng lẽ hắn nên làm việc khác.
+Có lẽ nàng đã dần cảm thấy an toàn ở nơi này.
 
-Thế nhưng...
+Ý nghĩ ấy khiến lòng chàng dịu xuống.
 
-Hắn lại không muốn lập tức rời mắt.
+Chàng từng nhận không ít đệ tử, cũng đã quen với việc chỉ bảo hậu bối. Nhưng thiếu nữ trước mặt lại khiến chàng phải để tâm đến những điều rất nhỏ.
 
-Cuối cùng, Thẩm Thanh Huyền chỉ khẽ lắc đầu, cầm ngọc giản lên.
+Nàng có ngủ ngon không.
 
-Việc học chiều nay, chậm một chút cũng không sao.
+Có lạnh không.
+
+Có cảm thấy lạc lõng khi sống giữa một thế giới xa lạ không.
+
+Những chuyện ấy không nằm trong bất kỳ quy củ thu đồ nào.
+
+Nhưng chàng vẫn muốn biết.
+
+Thẩm Thanh Huyền cúi mắt, nhìn ngọc giản trong tay.
+
+Một lúc sau, chàng mới tiếp tục đọc.
 
 ***
 
-## Một vệt nước trên bàn trà
+Khi Tô Tiểu Uyển tỉnh lại, điều đầu tiên nàng cảm nhận được là hơi ấm trên vai.
 
-Không biết qua bao lâu, Tô Tiểu Uyển mới tỉnh lại.
+Nàng chớp mắt.
 
-Thoạt đầu, nàng chỉ cảm thấy trên vai mình có thứ gì đó rất mềm.
+Trước mặt là quyển sách đang mở.
 
-Ấm áp.
+Bên cạnh có một vạt áo trắng.
 
-Còn mang theo hương thơm thanh nhã, thoang thoảng giống mùi gỗ trầm và tuyết tùng.
+Nàng chậm rãi ngẩng đầu.
 
-Nàng vô thức dụi má vào cánh tay.
+Thẩm Thanh Huyền đang ngồi đối diện, tay cầm ngọc giản.
 
-Rồi chậm rãi mở mắt.
-
-Trước mắt là một góc bàn trà bằng gỗ sẫm màu.
-
-Bên cạnh có quyển sách đang mở.
-
-Xa hơn một chút...
-
-Một vạt áo trắng.
-
-Tô Tiểu Uyển chớp mắt.
-
-Nàng ngẩng đầu.
-
-Và lập tức đối diện với một đôi mắt xanh biếc.
-
-Thẩm Thanh Huyền đang ngồi bên cạnh.
-
-Hắn hơi nghiêng người, một tay cầm ngọc giản, ánh mắt vừa từ trang sách chuyển sang nàng.
-
-Thấy nàng tỉnh, hắn nhẹ nhàng đặt ngọc giản xuống.
+Thấy nàng tỉnh, chàng đặt ngọc giản xuống.
 
 "Tiểu Uyển, tỉnh rồi?"
 
 "..."
 
-Tô Tiểu Uyển ngẩn người.
+Tô Tiểu Uyển nhìn chàng.
 
-Trong khoảnh khắc vừa tỉnh ngủ, đầu óc nàng còn chưa kịp hoạt động.
+Đầu óc vừa tỉnh ngủ vẫn còn mơ màng.
 
-Nàng chỉ nhìn thấy gương mặt tuấn mỹ ở rất gần.
+Nàng chỉ thấy đôi mắt xanh thẳm đang hướng về phía mình, dưới mắt trái là nốt ruồi nhỏ quen thuộc.
 
-Đôi mắt xanh biếc dưới hàng mi dài, làn da sáng trong, nốt ruồi nhỏ dưới mắt trái.
+Đẹp thật.
 
-Ánh sáng buổi chiều xuyên qua cửa sổ, rơi trên mái tóc trắng bạc mềm mại.
+Nàng vô thức nhìn thêm một lát.
 
-Đẹp đến mức nàng tưởng mình vẫn đang mơ.
+Rồi đột nhiên nhớ ra mình đang ở đâu.
 
-Nàng nhìn hắn thêm một lát.
+"Sư tôn!"
 
-Rồi đột nhiên tỉnh táo.
+Nàng bật dậy.
 
-"Sư... sư tôn!"
+Chiếc áo choàng trên vai trượt xuống.
 
-Nàng vội vàng ngồi thẳng dậy.
+Thẩm Thanh Huyền đưa tay giữ lại trước khi nó rơi xuống đất.
 
-Chiếc áo choàng trên vai lập tức trượt xuống.
+"Chậm thôi."
 
-Nàng luống cuống giữ lại.
+Tô Tiểu Uyển nhìn áo choàng.
 
-Lúc này mới phát hiện đó không phải áo của mình.
+Rồi nhìn chàng.
 
-"Sư tôn, áo này..."
+"Đây là..."
 
-"Thấy ngươi ngủ lạnh, ta khoác cho."
-
-"..."
-
-Hai má Tô Tiểu Uyển chậm rãi đỏ lên.
-
-Nàng cúi đầu nhìn chiếc áo.
-
-Rồi lại nhìn hắn.
-
-"Sư tôn..."
-
-"Ừ?"
-
-"Tiểu Uyển... ngủ quên ạ?"
-
-Thẩm Thanh Huyền nhìn nàng.
-
-"Ngươi nghĩ sao?"
-
-"..."
-
-Nàng cúi đầu.
-
-"Dạ, hình như vậy."
-
-Hắn khẽ cong môi.
-
-"Ngủ có ngon không?"
-
-Tô Tiểu Uyển càng ngượng.
-
-"Dạ..."
-
-Nàng định nói không ngon, nhưng lại nhớ bản thân vừa ngủ say đến mức chẳng biết trời đất gì.
-
-Cuối cùng chỉ đành thành thật đáp:
-
-"Ngon ạ."
-
-Thẩm Thanh Huyền khẽ gật đầu.
-
-"Vậy là tốt."
-
-Nàng im lặng.
-
-Sao sư tôn lại không trách nàng?
-
-Ngày đầu tiên đến học đã ngủ gục trong thư phòng của thầy, nếu ở thế giới cũ, e rằng nàng đã bị gọi dậy từ lâu.
-
-Đang nghĩ ngợi, nàng bỗng nhìn thấy một thứ trên mặt bàn.
-
-Một vệt nước nhỏ.
-
-Ngay chỗ vừa rồi nàng nằm ngủ.
-
-Tô Tiểu Uyển cứng người.
-
-"..."
-
-Nàng cúi xuống nhìn kỹ.
-
-Rồi chậm rãi đưa tay chạm lên khóe miệng.
-
-Hơi ẩm.
-
-Nàng chết lặng.
-
-Không thể nào.
-
-Không thể nào!
-
-Nàng...
-
-Nàng đã chảy nước miếng lên bàn trà của sư tôn!
-
-Tô Tiểu Uyển cảm thấy mặt mình nóng bừng.
-
-Nàng vội vàng lấy khăn tay trong tay áo, cuống quýt lau mặt bàn.
-
-"Sư tôn, con xin lỗi!"
-
-Thẩm Thanh Huyền hơi ngạc nhiên.
-
-"Chuyện gì?"
-
-"Tiểu Uyển... Tiểu Uyển không cố ý!"
-
-Hắn nhìn động tác luống cuống của nàng.
-
-Rồi nhìn xuống mặt bàn.
-
-Một lát sau, hắn mới hiểu ra.
-
-Khóe môi hơi động.
-
-Tô Tiểu Uyển cúi gằm mặt, vừa lau vừa lắp bắp:
-
-"Con không cố ý ngủ quên đâu ạ. Càng không cố ý... làm bẩn bàn trà của người..."
-
-Nàng càng nói càng nhỏ.
-
-"Con xin lỗi..."
-
-Thẩm Thanh Huyền nhìn nàng.
-
-Rồi khẽ đáp:
-
-"Không sao."
-
-Nàng ngẩng phắt đầu.
-
-"Dạ?"
-
-"Lau sạch là được."
-
-"..."
-
-Nàng nhìn hắn, dường như không tin chuyện có thể giải quyết đơn giản như vậy.
-
-"Sư tôn không giận ạ?"
-
-"Vì sao phải giận?"
-
-"Vì con làm bẩn bàn của người..."
-
-"Chẳng qua chỉ là một chút nước."
-
-Hắn nói rất bình thản.
-
-"Nếu ngươi thấy không sạch, ta có thể dùng Tịnh Trần thuật."
-
-Tô Tiểu Uyển chớp mắt.
-
-"Tịnh Trần thuật?"
-
-"Thuật pháp làm sạch bụi bẩn."
-
-Nàng ngẩn ra.
-
-"Vậy... ngay cả nước miếng cũng làm sạch được sao ạ?"
-
-Thẩm Thanh Huyền hơi dừng.
-
-Một lúc sau, hắn mới đáp:
-
-"Được."
-
-Đôi mắt nàng lập tức sáng lên.
-
-"Thần kỳ quá!"
-
-Hắn nhìn nàng.
-
-"Ngươi muốn học?"
-
-"Dạ!"
-
-Nàng gật đầu rất nhanh.
-
-"Con muốn học cái đó!"
-
-Thẩm Thanh Huyền trầm mặc.
-
-Một tiểu đệ tử vừa mới nhập môn, đối với dẫn khí nhập thể chẳng mấy hứng thú, lại đặc biệt muốn học thuật pháp lau dọn bàn trà.
-
-Quả thực...
-
-Hắn không biết nên nói gì.
-
-Cuối cùng, hắn chỉ khẽ lắc đầu.
-
-"Trước tiên phải học cách vận hành linh khí."
-
-"Dạ."
-
-Tô Tiểu Uyển ngoan ngoãn đáp.
-
-Rồi nàng lại nhớ đến chiếc áo choàng trên vai.
-
-Nàng vội vàng đứng dậy, cẩn thận gấp áo.
-
-"Sư tôn, con trả áo cho người."
-
-Thẩm Thanh Huyền đưa mắt nhìn.
-
-"Không cần vội."
-
-"Nhưng đây là áo của sư tôn mà..."
-
-"Ta biết."
-
-"Tiểu Uyển đã làm phiền người rồi, còn lấy áo của người nữa..."
-
-Hắn khẽ thở ra.
-
-"Tiểu Uyển."
-
-"Dạ?"
-
-"Áo là ta tự khoác cho ngươi."
+"Thấy ngươi ngủ, ta sợ ngươi lạnh."
 
 Nàng ngẩn người.
 
-"Cho nên không cần xin lỗi."
+Áo choàng vẫn còn lưu lại hơi ấm nhàn nhạt.
 
-Tô Tiểu Uyển nhìn hắn.
+Nàng cúi đầu, khẽ chạm vào mép áo.
 
-Một lúc sau, nàng mới khẽ đáp:
+"Cảm ơn sư tôn."
 
-"Dạ..."
+"Không cần khách sáo."
 
-Hai má vẫn còn ửng hồng.
-
-Nàng nâng chiếc áo lên, cẩn thận đặt trên chiếc ghế bên cạnh.
-
-Trong lòng bỗng có chút cảm giác rất lạ.
-
-Thật ra nàng không quen được người khác chăm sóc như vậy.
-
-Ở thế giới cũ, nàng đã sớm tập thói quen tự lo mọi chuyện.
-
-Ốm thì tự mua thuốc.
-
-Mệt thì tự nghỉ ngơi.
-
-Có những hôm tăng ca đến khuya, nàng còn chẳng nhớ mình đã ăn tối hay chưa.
-
-Vậy mà bây giờ, chỉ vì ngủ quên trong thư phòng, đã có người lặng lẽ khoác áo cho nàng.
-
-Người ấy còn chẳng trách nàng.
-
-Nghĩ đến đây, Tô Tiểu Uyển vô thức nhìn Thẩm Thanh Huyền.
-
-Ánh mắt nàng dịu đi đôi chút.
-
-***
-
-## Buổi học đầu tiên
-
-Thẩm Thanh Huyền nhìn những quyển sách trên bàn.
+Chàng nhìn những quyển sách trên bàn.
 
 "Ngươi đến từ lúc nào?"
 
-Tô Tiểu Uyển suy nghĩ.
+Tô Tiểu Uyển thành thật đáp.
 
-"Dạ... chắc khoảng đầu giờ Thìn ạ."
+"Buổi sáng ạ."
 
-Thẩm Thanh Huyền hơi ngừng.
+"Giờ nào?"
 
-Đầu giờ Thìn.
+Nàng nghĩ một lát.
 
-Nàng quả thực đã đợi gần cả buổi sáng.
+"Con không biết giờ ở đây tính thế nào... Nhưng lúc đến, mặt trời vừa lên chưa lâu."
 
-Hắn nhìn tờ giấy ghi chú bên cạnh.
+Thẩm Thanh Huyền im lặng.
 
-"Đến để hỏi bài?"
+Quả nhiên đã đợi rất lâu.
 
-"Dạ."
+"Là ta quên nói rõ thời gian."
 
-Nàng lập tức gật đầu.
+Tô Tiểu Uyển vội lắc đầu.
 
-"Hôm qua sư tôn nói mỗi sáng Tiểu Uyển có thể sang học, nên con dậy sớm một chút. Nhưng đến nơi không thấy người, con định đọc sách đợi."
+"Không sao đâu ạ! Con có mang sách theo mà."
 
-Nói đến đây, nàng cúi đầu.
+Nàng chỉ vào tờ giấy ghi chú.
 
-"Không ngờ lại ngủ quên..."
+"Con còn viết được rất nhiều câu hỏi."
 
-Thẩm Thanh Huyền im lặng một lát.
+Thẩm Thanh Huyền nhìn tờ giấy.
 
-"Là ta sơ suất."
+"Ta thấy rồi."
 
-Tô Tiểu Uyển ngẩng đầu.
+"Thật ạ?"
 
-"Dạ?"
+"Ừ."
 
-"Hôm qua ta chưa nói rõ. Buổi sáng ta thường phải đến chính điện xử lý tông vụ, không phải ngày nào cũng có mặt ở thư phòng."
+Chàng hơi cong môi.
 
-Nàng chớp mắt.
+"Xem ra ngươi có không ít điều muốn hỏi."
 
-"À..."
+Tô Tiểu Uyển có chút ngượng ngùng.
 
-Bấy giờ nàng mới hiểu.
+"Con sợ hỏi nhiều quá, sư tôn sẽ thấy phiền."
 
-Sư tôn không chỉ là người tu tiên.
+"Không hiểu thì hỏi. Ta đã nói rồi."
 
-Hắn còn là tông chủ Thanh Vân Môn.
+Nàng ngẩng đầu.
 
-Một tông môn lớn như vậy, đương nhiên có vô số công việc cần xử lý.
+Thẩm Thanh Huyền nhìn nàng, giọng bình thản.
 
-Nàng vội vàng nói:
+"Nhưng từ ngày mai, ngươi không cần đến sớm như vậy. Ta phải xử lý tông vụ vào buổi sáng. Chúng ta học sau giờ Ngọ."
 
-"Vậy là con đến không đúng lúc rồi. Con xin lỗi, sư tôn."
+Tô Tiểu Uyển lập tức gật đầu.
 
-"Không phải lỗi của ngươi."
+"Dạ, con nhớ rồi."
 
-Hắn nhìn nàng.
+Chàng nhìn sắc mặt nàng.
 
-"Là ta chưa sắp xếp chu đáo."
+"Đã dùng bữa chưa?"
 
-Tô Tiểu Uyển hơi ngẩn ra.
+Nàng khựng lại.
 
-Một vị tông chủ cao cao tại thượng, vậy mà lại thản nhiên nhận phần sơ suất về mình.
-
-Nàng bỗng cảm thấy sư tôn thật khác với hình dung ban đầu.
-
-Thẩm Thanh Huyền nói tiếp:
-
-"Từ mai, ngươi không cần đến quá sớm. Nếu buổi sáng ta có tông vụ, sẽ cho người báo trước. Khi nào ta về, ngươi hãy sang."
-
-"Dạ."
-
-"Nếu muốn đọc sách, cứ ở Lê Hoa Viện. Không cần ngồi đợi."
-
-"Dạ, con biết rồi."
-
-Hắn nhìn nàng.
-
-"Đã ăn trưa chưa?"
-
-Tô Tiểu Uyển ngẩn người.
-
-Nàng nhìn ra cửa sổ.
-
-Nắng đã chếch về chiều.
+Bụng đúng lúc phát ra một tiếng rất nhỏ.
 
 "..."
 
-Hình như chưa.
+Tô Tiểu Uyển cúi đầu.
 
-Thẩm Thanh Huyền vừa nhìn vẻ mặt ấy đã hiểu.
+Thẩm Thanh Huyền nhìn nàng một lát, cuối cùng không nhịn được mà khẽ cười.
 
-Hắn khẽ thở ra, gọi một vị đệ tử trực viện đang phụ trách công việc bên ngoài đến, dặn chuẩn bị một phần linh thiện thanh đạm.
-
-Chẳng bao lâu, vị sư huynh ấy mang khay thức ăn tới, cung kính đặt lên bàn rồi hành lễ cáo lui.
-
-Tô Tiểu Uyển lễ phép cảm ơn.
-
-Đợi bước chân người nọ đi xa, nàng mới nhìn xuống khay thức ăn.
-
-Thẩm Thanh Huyền nói:
-
-"Ăn trước đi."
-
-"...Dạ."
-
-Nàng vốn định từ chối, nhưng bụng lại không đúng lúc khẽ kêu một tiếng.
-
-Nàng lập tức cúi đầu.
-
-Thẩm Thanh Huyền làm như không nghe thấy.
-
-Tô Tiểu Uyển ngồi xuống, ngoan ngoãn dùng bữa.
-
-Còn hắn lấy ngọc giản ra tiếp tục xem.
-
-Trong thư phòng, một người ăn cơm, một người xử lý công việc.
-
-Không ai nói gì nhiều.
-
-Nhưng bầu không khí lại yên ổn đến lạ.
+"Ăn trước đã."
 
 ***
 
-Sau bữa ăn, buổi học đầu tiên cuối cùng cũng bắt đầu.
+Sau khi dùng bữa, buổi học đầu tiên mới chính thức bắt đầu.
 
-Thẩm Thanh Huyền kéo chiếc ghế đến bên cạnh bàn trà, đặt quyển *Nhập Môn Dẫn Khí* trước mặt nàng.
+Thẩm Thanh Huyền đặt quyển *Nhập Môn Dẫn Khí* trước mặt nàng.
 
-"Trước tiên, ta muốn biết ngươi đã đọc được những gì."
+"Trước hết, nói ta nghe ngươi hiểu linh khí là gì."
 
-Tô Tiểu Uyển lập tức ngồi ngay ngắn.
+Tô Tiểu Uyển suy nghĩ.
 
-"Dạ."
-
-"Ngươi hiểu thế nào là linh khí?"
-
-Nàng suy nghĩ.
-
-"Là một loại năng lượng tồn tại trong trời đất ạ?"
-
-Thẩm Thanh Huyền hơi nhướng mày.
+"Là... năng lượng ạ?"
 
 "Năng lượng?"
 
-"Dạ..."
+Nàng chợt nhớ đây không phải cách diễn đạt quen thuộc ở Huyễn Giới.
 
-Nàng chợt nhớ từ ấy có lẽ không phải cách diễn đạt thông thường ở thế giới này.
+"Ý con là một loại sức mạnh tồn tại trong thiên nhiên, người tu luyện có thể hấp thu và sử dụng."
 
-"Ý con là... một loại sức mạnh có sẵn trong tự nhiên, có thể được người tu hành hấp thu và sử dụng."
-
-Thẩm Thanh Huyền nhìn nàng một lát.
+Thẩm Thanh Huyền gật đầu.
 
 "Có thể hiểu như vậy."
 
-Nàng lập tức thở phào.
-
-"Vậy linh căn là thứ giúp Tiểu Uyển hấp thu linh khí sao ạ?"
+"Vậy linh căn là thứ giúp người tu luyện hấp thu linh khí?"
 
 "Đúng, nhưng chưa đầy đủ."
 
-Hắn mở sách, chỉ vào một đoạn văn.
+Chàng mở sách, chỉ cho nàng một đoạn.
 
-"Linh căn quyết định khả năng cảm ứng và tương hợp của tu sĩ với linh khí. Tuy nhiên, việc hấp thu và vận hành linh lực còn phụ thuộc vào công pháp, kinh mạch, thần thức và cảnh giới tu luyện."
+"Linh căn quyết định khả năng cảm ứng và tương hợp với linh khí. Muốn hấp thu, vận hành linh lực còn cần công pháp, kinh mạch và thần thức."
 
-Tô Tiểu Uyển chăm chú lắng nghe.
+Tô Tiểu Uyển chăm chú ghi lại.
 
-Nàng cầm bút ghi lại.
-
-"Vậy nếu một người có linh căn tốt nhưng không chịu tu luyện, vẫn không thể mạnh lên đúng không ạ?"
-
-"Phải."
-
-"Còn người có linh căn bình thường, nếu chăm chỉ thì vẫn có thể tiến bộ?"
+"Vậy nếu linh căn bình thường, nhưng chăm chỉ tu luyện thì vẫn có thể tiến bộ?"
 
 "Đương nhiên."
 
-Nàng gật gù.
+"Thế nếu linh căn rất tốt mà lười biếng?"
 
-"Con hiểu rồi."
+"Cũng khó thành tựu."
 
-Thẩm Thanh Huyền nhìn nàng.
-
-Hắn vốn tưởng phải giải thích rất lâu, không ngờ nàng lại nắm được ý chính khá nhanh.
-
-Chỉ là kiến thức nền tảng của nàng thiếu hụt quá nhiều.
-
-Có những điều phải bắt đầu từ đầu.
-
-Hắn tiếp tục giảng:
-
-"Muốn dẫn khí nhập thể, trước tiên cần học cách cảm ứng linh khí. Khi thần thức có thể nhận biết sự tồn tại của linh khí, ngươi mới từng bước dẫn chúng vào kinh mạch."
-
-Nàng lập tức hỏi:
-
-"Nhưng nếu không nhìn thấy, làm sao biết linh khí ở đâu ạ?"
-
-Thẩm Thanh Huyền suy nghĩ một lát.
-
-Hắn đưa tay lên.
-
-Một luồng linh khí màu xanh nhạt chậm rãi ngưng tụ trên đầu ngón tay.
-
-Tô Tiểu Uyển mở to mắt.
-
-"Đẹp quá..."
-
-Luồng sáng ấy nhẹ nhàng xoay tròn.
-
-"Đây là linh khí đã được ta ngưng tụ thành hình. Bình thường, linh khí trong thiên địa không hiện rõ như vậy."
-
-Hắn khẽ chuyển tay.
-
-Ánh sáng tan thành vô số hạt nhỏ, lặng lẽ biến mất trong không khí.
-
-"Tu sĩ cần dùng thần thức để cảm nhận sự tồn tại của chúng."
-
-Tô Tiểu Uyển ngẫm nghĩ.
-
-"Vậy có giống như gió không ạ? Không nhìn thấy gió, nhưng có thể cảm nhận được nó?"
-
-Thẩm Thanh Huyền nhìn nàng, khẽ gật đầu.
-
-"Ví dụ ấy khá gần."
-
-Nàng lập tức vui vẻ.
+Nàng lập tức gật đầu.
 
 "Con hiểu rồi!"
 
-Hắn hơi cong môi.
+Thẩm Thanh Huyền nhìn vẻ mặt hài lòng của nàng, trong mắt thoáng hiện ý cười.
 
-"Vậy tiếp tục."
+Ít nhất, tiểu đồ đệ này không thiếu tinh thần học hỏi.
+
+Chỉ là những kiến thức nàng thiếu hụt quá nhiều.
+
+Chàng cần bắt đầu từ những điều cơ bản nhất.
+
+"Tiếp theo là cảm ứng linh khí."
+
+Tô Tiểu Uyển lập tức giơ tay.
+
+"Sư tôn, nếu linh khí không nhìn thấy được, làm sao biết nó ở đâu?"
+
+Thẩm Thanh Huyền nâng tay.
+
+Một luồng linh lực màu xanh nhạt ngưng tụ trên đầu ngón tay, xoay tròn như dòng nước nhỏ.
+
+Đôi mắt Tô Tiểu Uyển sáng lên.
+
+"Đẹp quá!"
+
+"Đây là linh lực đã được ngưng tụ thành hình. Linh khí trong thiên địa thông thường không hiện rõ như vậy."
+
+Chàng khẽ chuyển tay.
+
+Luồng sáng tan thành những điểm nhỏ, biến mất.
+
+"Muốn cảm nhận chúng, cần tĩnh tâm và vận dụng thần thức."
+
+Tô Tiểu Uyển suy nghĩ một lát.
+
+"Vậy có giống như không khí không ạ? Tuy không nhìn thấy nhưng vẫn tồn tại quanh mình?"
+
+"Ví dụ ấy khá gần."
+
+Nàng mỉm cười.
+
+Hóa ra tu tiên cũng không hoàn toàn khó hiểu.
+
+Chỉ cần tìm được cách liên hệ với những điều nàng từng biết.
 
 ***
 
-Ban đầu, buổi học diễn ra khá thuận lợi.
+Buổi học diễn ra khá thuận lợi cho đến khi Thẩm Thanh Huyền chuyển sang giảng về kinh mạch.
 
-Tô Tiểu Uyển hỏi rất nhiều.
-
-Có câu ngây ngô, cũng có câu khiến Thẩm Thanh Huyền phải suy nghĩ một lát mới tìm được cách giải thích phù hợp.
-
-Nàng không quen với những khái niệm tu tiên, nhưng lại thường liên hệ chúng với những hiểu biết từ thế giới cũ.
-
-Đối với hắn, cách suy nghĩ ấy có phần mới lạ.
-
-Hắn cũng dần nhận ra, nếu cứ dùng phương pháp thông thường để giảng dạy, nàng chưa chắc đã hiểu.
-
-Vì vậy, hắn thay đổi cách giải thích.
-
-Không bắt nàng ghi nhớ quá nhiều thuật ngữ.
-
-Thay vào đó, hắn dùng những ví dụ trực quan, thậm chí thỉnh thoảng ngưng tụ một chút linh khí để nàng quan sát.
-
-Tô Tiểu Uyển học rất chăm chú.
-
-Ít nhất...
-
-Lúc đầu là vậy.
-
-Cho đến khi Thẩm Thanh Huyền chuyển sang giảng về kinh mạch.
-
-Hắn kéo quyển *Kinh Mạch Sơ Giải* đến gần, mở ra một trang có hình vẽ cơ thể người.
+Chàng mở một trang sách có hình vẽ cơ thể người.
 
 "Tiểu Uyển, nhìn đây."
 
-Nàng lập tức nghiêng người.
-
 "Dạ."
 
-"Đây là những đường kinh mạch chính. Linh khí sau khi nhập thể sẽ được dẫn qua các đường này, cuối cùng hội tụ về đan điền."
+"Linh khí sau khi nhập thể phải vận hành theo công pháp, đi qua những kinh mạch tương ứng rồi hội tụ về đan điền."
 
-Hắn đặt ngón tay lên một đường vẽ.
+Chàng đặt ngón tay lên hình vẽ.
 
-"Từ khí hải dẫn lên, vận hành qua..."
+"Đường này dẫn từ khí hải..."
 
-Giọng hắn trầm thấp, thong thả.
+Tô Tiểu Uyển nhìn theo.
 
-Tô Tiểu Uyển nhìn theo ngón tay ấy.
+Bàn tay sư tôn thật đẹp.
 
-Bàn tay Thẩm Thanh Huyền rất đẹp.
+Những ngón tay thon dài, khớp xương rõ ràng, cổ tay lộ ra dưới tay áo trắng viền bạc.
 
-Ngón tay thon dài, khớp xương rõ ràng, làn da sáng như ngọc.
-
-Tay áo trắng viền bạc khẽ lướt qua mép sách.
-
-Khi hắn hơi cúi xuống, một vài sợi tóc bạc trượt khỏi vai.
+Khi chàng nghiêng người chỉ sách, vài lọn tóc bạc trượt xuống vai.
 
 Nàng vô thức ngẩng đầu.
 
-Và nhìn thấy đôi mắt hắn.
+Ánh mắt dừng trên gương mặt chàng.
 
-***
+Rồi đến đôi mắt xanh thẳm.
 
-Ánh chiều ngoài cửa sổ vừa lúc rơi xuống gương mặt Thẩm Thanh Huyền.
+Tô Tiểu Uyển bỗng nhớ đến lần đầu hai người gặp nhau.
 
-Đôi mắt xanh biếc ấy hơi cụp xuống, ánh nhìn chăm chú dừng trên trang sách.
+Khi ấy, nàng đã hoảng sợ đến mức chẳng biết phải làm gì.
 
-Hàng mi dài tạo thành một bóng mờ rất nhẹ.
+Chàng không ép nàng giải thích.
 
-Khi hắn giảng giải điều gì, ánh mắt thường bình thản, nghiêm túc, nhưng không hề lạnh lùng.
+Cũng không tỏ ra ghê sợ khi biết nàng đến từ thế giới khác.
 
-Tô Tiểu Uyển nhìn hắn.
+Chàng chỉ bình tĩnh nghe nàng nói, rồi bảo rằng sẽ giúp nàng từ từ tìm hiểu.
 
-Nàng bỗng nhớ đến lần đầu hai người gặp nhau.
+Sau đó, khi nàng bị Đường Minh Hy làm cho sợ hãi, chàng lại đứng ra bảo vệ.
 
-Khi ấy, nàng vừa tỉnh lại trong một thế giới xa lạ.
+Và hôm nay, chàng đã để nàng ngủ trong thư phòng, còn khoác áo cho nàng.
 
-Mọi thứ đều khiến nàng hoang mang.
+Tô Tiểu Uyển nhìn chàng.
 
-Ngay cả gương mặt của chính mình cũng không còn quen thuộc.
+Trong lòng xuất hiện một cảm giác rất lạ.
 
-Nhưng người trước mặt lại nhìn nàng bằng đôi mắt rất bình tĩnh.
+Nàng từng thấy chàng đẹp ngay từ lần đầu gặp mặt.
 
-Hắn không tỏ ra hoảng sợ khi nghe nàng nói mình đến từ một thế giới khác.
+Nhưng lúc này, điều khiến nàng muốn nhìn thêm không chỉ là dung mạo ấy.
 
-Cũng không ép nàng phải giải thích những điều chính nàng còn chưa hiểu.
+Mà còn là cảm giác yên tâm mỗi khi ở bên chàng.
 
-Ánh mắt ấy không có sự nghi ngờ hay chán ghét.
+Giữa Huyễn Giới rộng lớn, nàng vẫn chưa tìm được đường về nhà.
 
-Chỉ có sự trầm tĩnh khiến người ta bất giác an lòng.
+Nhưng ít nhất, ở nơi này đã có một người khiến nàng không còn phải sợ hãi mọi lúc.
 
-Rồi đến hôm qua.
+Nàng muốn nhìn đôi mắt ấy thêm một chút.
 
-Khi Đường Minh Hy tiến đến gần, nàng đã vô thức chạy ra sau lưng hắn.
-
-Lúc ấy, nàng không suy nghĩ quá nhiều.
-
-Chỉ cảm thấy nếu đứng bên cạnh người này, mình sẽ được bảo vệ.
-
-Giờ đây, khi ngồi sát bên hắn, nghe giọng nói trầm thấp ấy chậm rãi vang lên, nàng lại có một cảm giác khác.
-
-Một chút ấm áp.
-
-Một chút bối rối.
-
-Và một chút lưu luyến mà chính nàng cũng không giải thích được.
-
-Nàng muốn nhìn đôi mắt ấy thêm một lát.
-
-Chỉ một lát thôi.
-
-***
+Chỉ một chút thôi.
 
 "Tiểu Uyển."
 
@@ -1231,37 +635,31 @@ Thẩm Thanh Huyền nhìn nàng.
 
 "Ngươi có nghe ta giảng không?"
 
-Tô Tiểu Uyển vội vàng gật đầu.
-
 "Dạ, có ạ!"
 
-"Vậy nói lại xem, khi vận hành linh khí qua huyệt Thiên Trung cần chú ý điều gì?"
+"Vậy nói lại xem, khi vận hành linh khí qua kinh mạch cần chú ý điều gì?"
 
 "..."
 
-Nàng cúi đầu nhìn sách.
+Tô Tiểu Uyển nhìn trang sách.
 
-Những hàng chữ trước mắt vẫn nằm ngay ngắn ở đó.
+Những đường vẽ vẫn nằm ngay ngắn trước mắt.
 
-Nhưng trong đầu nàng lúc này lại chẳng nhớ được bao nhiêu.
+Nhưng nàng hoàn toàn không nhớ sư tôn vừa giảng đến đâu.
 
-Nàng cố gắng suy nghĩ.
-
-Một lát sau, nhỏ giọng đáp:
+Nàng cố suy nghĩ.
 
 "Dạ... phải vận hành linh khí ạ?"
 
 Thẩm Thanh Huyền im lặng.
 
-"Ta đang hỏi cần chú ý điều gì."
+"Ta hỏi cần chú ý điều gì."
 
-"..."
+Nàng cúi đầu.
 
-Nàng càng cúi đầu thấp hơn.
+"Con quên rồi..."
 
-"Dạ, con quên rồi."
-
-Hắn nhìn nàng một lát.
+Chàng nhìn nàng một lát.
 
 "Vừa rồi ngươi nhìn gì?"
 
@@ -1269,51 +667,39 @@ Tô Tiểu Uyển khựng lại.
 
 Nàng ngẩng đầu.
 
-Đôi mắt xanh biếc ấy vẫn đang nhìn mình.
+Đôi mắt xanh ấy vẫn đang nhìn nàng, bình thản chờ câu trả lời.
 
-Ánh mắt hắn không nghiêm khắc, chỉ mang theo chút nghi hoặc.
+Hai má nàng bỗng nóng lên.
 
-Không hiểu sao, hai má nàng bỗng nóng lên.
-
-Nàng nhìn hắn thêm một thoáng.
-
-Rồi thành thật đáp:
+Nàng do dự một lát, cuối cùng thành thật đáp:
 
 "Tại vì mắt sư tôn rất đẹp."
 
 Ngón tay Thẩm Thanh Huyền đang đặt trên trang sách hơi dừng.
 
-Hắn nhìn nàng.
+Chàng nhìn nàng.
 
-Tô Tiểu Uyển dường như cũng nhận ra mình vừa nói điều gì.
+Tô Tiểu Uyển cũng nhận ra mình vừa nói gì.
 
 Nàng lập tức cúi đầu.
 
 "Con... con xin lỗi."
 
-Hai tai nàng đỏ bừng.
+Hai tai đỏ bừng.
 
 "Tiểu Uyển không cố ý mất tập trung đâu ạ."
 
 Thẩm Thanh Huyền không đáp ngay.
 
-Hắn đã từng nghe rất nhiều người khen ngợi dung mạo mình.
+Từ nhỏ đến lớn, chàng đã nghe không ít lời khen về dung mạo.
 
-Từ khi còn là thiếu gia chủ Thẩm gia, những lời tán thưởng ấy đã chẳng còn xa lạ.
+Những lời ấy vốn chẳng khiến chàng bận tâm.
 
-Nhưng tiểu cô nương trước mặt không nói hắn tuấn mỹ.
+Nhưng thiếu nữ trước mặt vừa nhìn thẳng vào mắt chàng, rồi nói ra điều mình nghĩ một cách tự nhiên đến mức chàng nhất thời không biết nên phản ứng thế nào.
 
-Cũng không nhắc đến phong thái hay khí chất.
+Chàng nhìn đôi tai đỏ bừng của nàng.
 
-Nàng chỉ nói đôi mắt hắn đẹp.
-
-Hơn nữa, khi nói câu ấy, nàng vẫn nhìn thẳng vào mắt hắn, như thể đó là điều duy nhất nàng thực sự muốn nói.
-
-Trong lòng Thẩm Thanh Huyền bỗng xuất hiện một cảm giác rất lạ.
-
-Hắn thoáng dời mắt.
-
-Rồi lại nhìn nàng.
+Rồi nhìn quyển sách.
 
 "Tiểu Uyển."
 
@@ -1325,43 +711,23 @@ Nàng lập tức gật đầu.
 
 "Dạ, con biết rồi."
 
-Hắn khẽ cúi xuống trang sách.
-
 "Vậy nhìn sách đi."
 
 "Dạ."
 
 Tô Tiểu Uyển ngoan ngoãn cúi đầu.
 
-Nàng cố gắng nhìn những đường kinh mạch trên giấy.
+Lần này nàng nhất định phải học nghiêm túc.
 
-Một đường.
+***
 
-Hai đường.
+Được một lát, Thẩm Thanh Huyền lại nhận ra ánh mắt nàng đang rời khỏi trang sách.
 
-Ba đường.
+Chàng không ngẩng đầu ngay.
 
-Nhưng chẳng bao lâu, ánh mắt lại vô thức dịch chuyển.
+Chỉ tiếp tục giảng.
 
-Từ trang sách...
-
-Đến bàn tay đang cầm bút của sư tôn.
-
-Rồi theo ống tay áo trắng...
-
-Lên gương mặt hắn.
-
-Cuối cùng lại dừng trên đôi mắt xanh biếc.
-
-Lần này, Thẩm Thanh Huyền vừa hay ngước lên.
-
-Hai ánh mắt chạm nhau.
-
-Tô Tiểu Uyển giật mình, lập tức cúi đầu.
-
-Hắn nhìn nàng.
-
-Một lát sau, khóe môi thoáng hiện ý cười.
+Đến khi ánh mắt ấy dừng trên mặt mình lần nữa, chàng mới đặt bút xuống.
 
 "Tiểu Uyển."
 
@@ -1369,95 +735,41 @@ Một lát sau, khóe môi thoáng hiện ý cười.
 
 "Chữ nằm trên giấy, không nằm trong mắt ta."
 
-Hai tai nàng lập tức đỏ bừng.
+"..."
 
-"Dạ, con biết rồi..."
+Mặt Tô Tiểu Uyển lập tức đỏ bừng.
 
-Hắn nhìn vẻ mặt xấu hổ của nàng, cuối cùng chỉ khẽ lắc đầu.
+"Sư tôn!"
 
-"Tiếp tục."
+Thẩm Thanh Huyền khẽ cong môi.
 
-***
+"Ta nói sai sao?"
 
-## Sư tôn, con đang nghe mà!
+Nàng không biết đáp thế nào.
 
-Thẩm Thanh Huyền vốn nghĩ, sau khi bị nhắc nhở hai lần, tiểu đồ đệ của mình hẳn sẽ chăm chú hơn.
+Chỉ đành cúi đầu, cố gắng nhìn những đường kinh mạch.
 
-Nhưng hắn đã đánh giá thấp khả năng mất tập trung của nàng.
+Nhưng càng tự nhủ không được nhìn chàng, nàng lại càng ý thức rõ chàng đang ngồi ngay bên cạnh.
 
-Lần thứ ba, hắn đang giải thích về tiểu chu thiên.
+Đến khi sư tôn hỏi về tiểu chu thiên, nàng chỉ nhớ mang máng linh khí phải đi một vòng rồi quay về.
 
-Nàng nhìn hắn.
+"Quay về đâu?" chàng hỏi.
 
-Lần thứ tư, hắn dùng linh lực vẽ một đường kinh mạch giữa không trung.
-
-Nàng nhìn đường sáng được một lúc, rồi lại nhìn hắn.
-
-Đến lần thứ năm, ngay cả khi hắn đã cố ý ngồi thẳng người, giữ khoảng cách với nàng một chút, ánh mắt nàng vẫn thỉnh thoảng lén hướng về phía hắn.
-
-Thẩm Thanh Huyền cuối cùng đặt bút xuống.
-
-"Tiểu Uyển."
-
-"Dạ!"
-
-Nàng lập tức ngồi ngay ngắn.
-
-"Ta vừa nói gì?"
-
-Tô Tiểu Uyển chớp mắt.
-
-Hắn nhìn nàng.
-
-Nàng nhìn sách.
-
-Rồi lại nhìn hắn.
-
-"Dạ..."
-
-"Nói đi."
-
-Nàng cố gắng nhớ lại.
-
-"Sư tôn vừa nói... linh khí phải đi một vòng..."
-
-"Ừ."
-
-"Rồi..."
-
-"Rồi sao?"
-
-"...Rồi quay về ạ."
-
-Thẩm Thanh Huyền im lặng một lát.
-
-"Quay về đâu?"
-
-Nàng cúi đầu.
-
-"Con quên mất rồi."
-
-Hắn khẽ thở ra.
+"..."
 
 "Đan điền."
 
 "Dạ! Đúng rồi, đan điền!"
 
-Nàng lập tức gật đầu.
-
-"Con nhớ ra rồi!"
-
 Thẩm Thanh Huyền nhìn nàng.
 
 "Ngươi nhớ ra, hay vừa nghe ta nói?"
 
-Nàng không đáp.
+Tô Tiểu Uyển lặng lẽ cúi đầu.
 
-Hắn cũng không ép.
+Chàng khép sách.
 
-Chỉ lặng lẽ khép quyển sách lại.
-
-Tô Tiểu Uyển lập tức hoảng hốt.
+Nàng lập tức hoảng hốt.
 
 "Sư tôn, người giận rồi ạ?"
 
@@ -1465,121 +777,121 @@ Tô Tiểu Uyển lập tức hoảng hốt.
 
 "Vậy sao người không giảng nữa?"
 
-Hắn nhìn nàng.
-
 "Giảng tiếp, ngươi có nghe được không?"
 
-Nàng khựng lại.
+Nàng không đáp.
 
-Rồi cúi đầu.
+Thẩm Thanh Huyền nhìn vẻ mặt áy náy ấy, giọng chậm lại.
 
-"Dạ..."
+"Tu luyện không giống đọc sách giải trí. Dẫn linh khí sai đường có thể tổn thương kinh mạch, thậm chí ảnh hưởng căn cơ."
 
-Thẩm Thanh Huyền chậm rãi nói:
+Tô Tiểu Uyển lập tức nghiêm túc.
 
-"Học tu luyện không giống đọc sách giải trí. Nếu dẫn khí sai đường, nhẹ thì đau đớn kinh mạch, nặng có thể tổn thương căn cơ."
+"Con hiểu rồi ạ."
 
-Nàng lập tức nghiêm túc hơn.
-
-"Con biết rồi ạ."
-
-"Cho nên những điều cần ghi nhớ, không được tùy tiện bỏ qua."
+"Vì vậy, những điều quan trọng không thể tùy tiện bỏ qua."
 
 "Dạ."
 
-Hắn nhìn vẻ mặt có chút áy náy của nàng, giọng dịu xuống.
+Chàng dừng một lát.
 
-"Nhưng hôm nay là buổi đầu tiên, không cần học quá nhiều."
+"Nhưng hôm nay là buổi đầu tiên. Không cần học quá nhiều."
 
-Tô Tiểu Uyển ngẩng đầu.
+Nàng ngẩng đầu.
 
 "Thật ạ?"
 
-"Ừ."
+"Ừ. Trước mắt, chỉ cần hiểu rõ linh khí, kinh mạch và đan điền. Ngày mai ta sẽ kiểm tra lại."
 
-Hắn đẩy quyển sách về phía nàng.
+Tô Tiểu Uyển gật đầu thật mạnh.
 
-"Trước mắt, chỉ cần hiểu rõ khái niệm linh khí, kinh mạch và đan điền. Ngày mai ta sẽ kiểm tra lại."
+"Con nhất định sẽ học thuộc!"
 
-Nàng lập tức gật đầu.
+Thẩm Thanh Huyền hơi nhướng mày.
 
-"Dạ, con nhất định sẽ học thuộc!"
-
-Thẩm Thanh Huyền khẽ nhướng mày.
-
-"Vừa rồi cũng nói đang nghe rất chăm chú."
-
-Nàng đỏ mặt.
+"Vừa rồi ngươi cũng nói mình đang nghe rất chăm chú."
 
 "Sư tôn..."
 
-Hắn nhìn nàng.
-
-"Ừ?"
-
-Nàng nhỏ giọng:
+Nàng nhỏ giọng, có chút ấm ức.
 
 "Con thật sự có cố gắng nghe mà..."
 
-Giọng nói ấy mang theo chút ấm ức.
-
-Thẩm Thanh Huyền nhìn nàng một lát.
-
-Rồi khóe môi khẽ cong lên.
+Chàng nhìn nàng một lát.
 
 "Ta biết."
 
-Nàng ngẩn ra.
+Tô Tiểu Uyển ngẩn ra.
 
-Hắn nói tiếp:
+Rồi nghe chàng nói tiếp:
 
 "Chỉ là mắt ngươi bận việc khác."
 
-Tô Tiểu Uyển lập tức cúi gằm mặt.
+"..."
 
-Lần này, nàng thật sự không biết nên đáp thế nào.
+Lần này, nàng thật sự không biết giấu mặt vào đâu.
 
-Thẩm Thanh Huyền nhìn đôi tai đỏ bừng của nàng.
+Thẩm Thanh Huyền cuối cùng cũng bật cười.
 
-Trong lòng chợt cảm thấy có chút thú vị.
+Tiếng cười rất khẽ.
 
-Hắn vốn không phải người thích trêu chọc đệ tử.
+Nhưng đủ khiến Tô Tiểu Uyển ngẩng đầu.
 
-Nhưng chẳng hiểu sao, nhìn tiểu cô nương bình thường luôn có rất nhiều câu hỏi, giờ đây lại nghẹn lời vì mấy câu đơn giản, hắn bỗng thấy tâm trạng mình tốt hơn đôi chút.
+Nàng chưa từng thấy chàng cười như vậy.
 
-Cuối cùng, hắn không trêu nàng nữa.
+Không phải nụ cười xã giao nhàn nhạt, mà là một thoáng vui vẻ thật sự.
 
-"Được rồi. Hôm nay đến đây thôi."
+Nàng nhìn đến ngẩn người.
 
-Tô Tiểu Uyển lập tức ngẩng đầu.
+Thẩm Thanh Huyền nhận ra.
 
-"Dạ."
+Chàng thu lại ý cười, nhẹ nhàng gõ ngón tay lên quyển sách.
 
-"Về nghỉ ngơi đi."
+"Tiểu Uyển."
 
-Nàng chần chừ.
+Nàng lập tức cúi đầu.
+
+"Dạ! Con nhìn sách!"
+
+***
+
+Khi buổi học kết thúc, Tô Tiểu Uyển vẫn có chút lưu luyến.
+
+Nàng cẩn thận xếp sách và giấy ghi chú vào lòng.
 
 "Sư tôn..."
 
 "Chuyện gì?"
 
-"Ngày mai Tiểu Uyển vẫn có thể đến học chứ ạ?"
+"Ngày mai con vẫn được đến học chứ ạ?"
 
 Thẩm Thanh Huyền hơi ngạc nhiên.
 
-"Hôm nay chưa đủ sao?"
+"Đương nhiên."
 
-Nàng vội vàng lắc đầu.
+Nàng cúi mắt.
 
-"Không phải ạ!"
+"Con sợ hôm nay mình học không tốt, sư tôn sẽ không muốn dạy nữa."
 
-Rồi cúi mắt.
+Chàng nhìn nàng.
 
-"Chỉ là... con sợ mình học không tốt, sư tôn sẽ không muốn dạy nữa."
+Vẻ ngượng ngùng vì bị trêu ban nãy đã biến mất. Trong mắt nàng lúc này là nỗi lo thật sự.
 
-Thẩm Thanh Huyền nhìn nàng.
+Thẩm Thanh Huyền chợt nhớ nàng từng nói mình không có ai ở Huyễn Giới.
 
-Một lát sau, hắn chậm rãi đáp:
+Có lẽ với nàng, việc được nhận làm đệ tử không đơn thuần là có người dạy tu luyện.
+
+Đó còn là một nơi để ở.
+
+Một thân phận được thừa nhận.
+
+Một mối quan hệ mà nàng không muốn đánh mất.
+
+Chàng đặt quyển sách xuống.
+
+"Tiểu Uyển."
+
+"Dạ."
 
 "Ta đã nhận ngươi làm đệ tử."
 
@@ -1587,296 +899,218 @@ Nàng ngẩng đầu.
 
 "Chỉ vì một buổi học không tập trung, chẳng lẽ ta sẽ không dạy ngươi nữa?"
 
-Tô Tiểu Uyển ngẩn người.
+Tô Tiểu Uyển im lặng.
 
-Hắn nói tiếp:
+"Tu hành là chuyện lâu dài. Hôm nay chưa hiểu thì ngày mai học tiếp. Ngày mai chưa hiểu, vẫn có thể học thêm."
 
-"Tu hành là chuyện lâu dài. Ngươi không cần vì một ngày học chưa tốt mà lo lắng."
+Chàng nhìn nàng, giọng bình thản mà chắc chắn.
 
-"Dạ..."
+"Ta không vì một ngày ngươi học chưa tốt mà bỏ mặc ngươi."
 
-"Ngày mai, ta vẫn sẽ dạy."
+Tô Tiểu Uyển nhìn chàng.
 
-Nàng khẽ mỉm cười.
+Một lúc lâu sau, nàng mới khẽ đáp:
+
+"Dạ."
+
+Nỗi lo trong lòng dần tan đi.
+
+Nàng mỉm cười.
 
 "Cảm ơn sư tôn."
 
 Thẩm Thanh Huyền gật đầu.
 
-"Ừ."
+"Ngày mai sau giờ Ngọ, nhớ đến đúng giờ."
+
+"Dạ!"
 
 ***
 
-## Một chút lưu luyến
-
-Khi Tô Tiểu Uyển ôm sách chuẩn bị trở về Lê Hoa Viện, trời đã gần tối.
-
-Nắng chiều phủ lên những bậc đá trắng ngoài hành lang.
-
-Nàng đứng dậy, cẩn thận xếp sách và giấy ghi chú vào lòng.
-
-Trước khi đi, nàng chợt nhìn thấy chiếc áo choàng vẫn đặt trên ghế.
+Trước khi rời đi, Tô Tiểu Uyển nhìn thấy chiếc áo choàng vẫn đặt trên ghế.
 
 "Sư tôn, áo của người..."
 
-Thẩm Thanh Huyền đưa mắt nhìn.
-
-"Đặt đó đi."
+"Để đó đi."
 
 Nàng gật đầu.
 
-"Dạ."
+Rồi lại khẽ nói:
 
-Nhưng rồi lại do dự.
-
-"Con cảm ơn người đã khoác áo cho Tiểu Uyển ạ."
-
-Hắn khẽ đáp:
+"Hôm nay cảm ơn người đã đắp áo cho con."
 
 "Không có gì."
 
 Nàng ôm sách, cúi đầu hành lễ.
 
-"Vậy con về trước."
+"Vậy Tiểu Uyển về trước ạ."
 
 "Ừ."
 
-Tô Tiểu Uyển xoay người.
-
-Đi được vài bước, nàng lại quay đầu.
+Nàng đi được vài bước, lại quay đầu.
 
 "Sư tôn."
 
 Thẩm Thanh Huyền ngước mắt.
 
-"Ừ?"
+"Chuyện gì?"
 
-Nàng nhìn hắn.
+Tô Tiểu Uyển nhìn chàng.
 
 Thật ra nàng cũng không biết mình muốn nói gì.
 
-Chỉ là vừa đi được mấy bước, nàng lại muốn nhìn hắn thêm một lần.
+Chỉ là vừa nghĩ đến việc phải trở về Lê Hoa Viện, nàng bỗng thấy một ngày trôi qua quá nhanh.
 
-Đôi mắt xanh biếc ấy đang lặng lẽ hướng về phía nàng.
+Nàng muốn ở lại thêm một chút.
 
-Trong lòng nàng bỗng có chút rung động rất nhẹ.
-
-Nàng khẽ mỉm cười.
+Nhưng rồi nghĩ đến đống sách còn chưa học thuộc, nàng đành thôi.
 
 "Ngày mai gặp lại ạ."
 
 Thẩm Thanh Huyền thoáng ngừng.
 
-Sau đó, hắn gật đầu.
+Sau đó, chàng khẽ gật đầu.
 
 "Ngày mai gặp."
 
 Nàng vui vẻ rời đi.
 
-Bóng dáng nhỏ nhắn khuất dần sau hành lang.
-
-Thẩm Thanh Huyền vẫn ngồi bên bàn trà.
-
-Hắn nhìn về phía cửa thêm một lát.
-
-Rồi chậm rãi thu hồi ánh mắt.
-
 ***
 
 Thư phòng trở lại yên tĩnh.
 
-Trên bàn trà, chiếc ghế đối diện đã trống.
+Thẩm Thanh Huyền thu dọn những ngọc giản còn lại.
 
-Quyển *Nhập Môn Dẫn Khí* được tiểu đồ đệ ôm đi, chỉ còn tờ giấy nháp nàng vô tình để sót.
+Khi nhìn xuống bàn trà, chàng phát hiện Tô Tiểu Uyển đã để quên một tờ giấy nháp.
 
-Thẩm Thanh Huyền cầm lên.
+Trên đó là những câu hỏi viết bằng nét chữ nhỏ nhắn.
 
-Trên đó có những câu hỏi viết bằng nét chữ nhỏ nhắn.
-
-Phía dưới cùng, nàng còn vẽ một hình tròn, bên trong là mấy đường cong ngoằn ngoèo.
+Ở góc dưới cùng, nàng còn vẽ một hình tròn với vài đường cong ngoằn ngoèo.
 
 Bên cạnh ghi hai chữ:
 
 *"Đan điền?"*
 
-Hắn nhìn hình vẽ ấy.
+Thẩm Thanh Huyền nhìn hình vẽ.
 
-Một lúc sau, không nhịn được mà khẽ bật cười.
+Một lát sau, chàng khẽ bật cười.
 
-Học cả buổi chiều, cuối cùng nàng vẫn chưa phân biệt rõ đường kinh mạch nào đi đến đâu.
+Học cả buổi chiều, cuối cùng nàng vẫn chưa phân biệt rõ những đường kinh mạch.
 
-Thẩm Thanh Huyền đặt tờ giấy xuống.
+Chàng đặt tờ giấy xuống.
 
-Hắn nhớ đến ánh mắt nàng khi ngồi nghe giảng.
+Bất giác nhớ đến đôi mắt tím biếc cứ lén nhìn mình trong buổi học.
 
-Đôi mắt tím biếc rất trong, thỉnh thoảng lại lén nhìn hắn, rồi vội vàng cúi xuống mỗi khi bị phát hiện.
-
-Nàng dường như nghĩ những lần nhìn trộm ấy được che giấu rất khéo.
-
-Nhưng với thần thức và khả năng quan sát của hắn, làm sao có thể không nhận ra?
-
-Chỉ là...
-
-Hắn nhớ lại câu nói khi chiều.
+Rồi nhớ đến câu nói ấy.
 
 *"Tại vì mắt sư tôn rất đẹp."*
 
-Đầu ngón tay đang chạm vào tờ giấy hơi dừng.
+Đầu ngón tay chàng hơi dừng.
 
-Thẩm Thanh Huyền khẽ nâng mắt.
+Thẩm Thanh Huyền vốn nghĩ mình đã quen với những lời tán thưởng dung mạo.
 
-Từ nhỏ đến lớn, hắn đã nghe không ít lời tán thưởng dung mạo.
+Nhưng khi nhớ lại vẻ mặt thành thật của nàng, chàng vẫn cảm thấy có chút khác thường.
 
-Nhưng rất hiếm khi có người nhìn vào mắt hắn lâu như vậy.
+Nàng không cố lấy lòng.
 
-Càng hiếm có ai dùng ánh mắt trong trẻo, không chút che giấu ấy để nói ra một lời khen.
-
-Không phải cung kính.
-
-Cũng không phải lấy lòng.
+Cũng chẳng nghĩ đến việc lời khen ấy có thích hợp hay không.
 
 Chỉ đơn giản là thích nhìn.
 
-Hắn suy nghĩ một lát, rồi bất giác nhớ đến chính mình lúc giữa trưa.
+Chàng chợt nhớ đến buổi trưa.
 
-Khi nhìn thấy nàng ngủ gục trên bàn trà, hắn vốn có thể đánh thức nàng ngay.
+Khi ấy, chính chàng cũng đã ngồi nhìn nàng ngủ lâu hơn cần thiết.
 
-Nhưng lại không nỡ.
+Nghĩ đến đây, Thẩm Thanh Huyền hơi khựng lại.
 
-Thậm chí còn ngồi bên cạnh, lặng lẽ ngắm nàng ngủ thêm một lúc.
+Buổi chiều, nàng vì nhìn chàng mà quên bài.
 
-Thẩm Thanh Huyền hơi khựng lại.
+Còn buổi trưa, chàng cũng từng vì nhìn nàng mà tạm gác ngọc giản.
 
-Hắn chợt cảm thấy chuyện này có chút kỳ lạ.
+Chàng im lặng một lát.
 
-Buổi chiều, nàng vì nhìn hắn mà quên mất bài học.
+Rồi khẽ lắc đầu.
 
-Còn buổi trưa...
+Có lẽ chỉ vì tiểu đồ đệ ấy quá mức thú vị.
 
-Chính hắn cũng từng vì nhìn nàng mà tạm gác công việc sang một bên.
+Hơn nữa, chàng vẫn còn áy náy vì đã để nàng đợi cả buổi sáng.
 
-Nghĩ đến đây, hắn khẽ lắc đầu.
+Lời giải thích ấy khá hợp lý.
 
-Có lẽ chỉ vì tiểu nha đầu ấy quá mức thú vị.
+Thẩm Thanh Huyền không suy nghĩ thêm, cầm ngọc giản lên.
 
-Hơn nữa, hắn cũng có phần áy náy vì để nàng đợi cả buổi sáng.
+Nhưng khi vừa mở ra, ánh mắt chàng lại dừng trên chiếc ghế đối diện.
 
-Hắn tự tìm được một lời giải thích khá hợp lý.
+Chiếc ghế đã trống.
 
-Bèn không suy nghĩ thêm.
+Buổi sáng, căn phòng này chỉ có một mình chàng.
 
-Thẩm Thanh Huyền lấy ngọc giản ra, định tiếp tục xử lý phần công việc còn lại.
+Đến buổi chiều, nơi ấy có thêm một thiếu nữ ôm sách, hỏi đủ thứ chuyện, rồi đỏ mặt vì bị bắt gặp nhìn trộm sư tôn.
 
-Nhưng khi vừa mở ra, ánh mắt hắn lại vô thức nhìn về phía chiếc ghế trống đối diện.
+Bây giờ nàng đã về.
 
-Một lát sau, hắn mới thu hồi tầm mắt.
+Thẩm Thanh Huyền nhìn chiếc ghế thêm một lát.
 
-Ngoài cửa sổ, gió chiều lay động rèm trúc.
+Lần đầu tiên sau rất nhiều năm, chàng nhận ra mình đã quen với sự yên tĩnh đến mức nào.
 
-Trong thư phòng, hương trà vẫn còn vương nhè nhẹ.
-
-Hắn chợt nhận ra...
-
-Hôm nay, căn phòng này dường như đã náo nhiệt hơn mọi ngày rất nhiều.
+Và hôm nay, sự yên tĩnh ấy dường như thiếu mất điều gì.
 
 ***
 
-Cùng lúc ấy, tại Lê Hoa Viện.
+Cùng lúc đó, tại Lê Hoa Viện.
 
-Tô Tiểu Uyển đang ngồi bên bàn, trước mặt bày quyển *Nhập Môn Dẫn Khí*.
-
-Nàng nghiêm túc mở sách.
+Tô Tiểu Uyển đang ngồi trước quyển *Nhập Môn Dẫn Khí*.
 
 Ngày mai sư tôn sẽ kiểm tra.
 
-Nàng nhất định phải học cho tốt.
+Nàng nhất định phải học thật tốt.
 
-Không thể lại mất tập trung như hôm nay.
+Nàng cầm bút, viết xuống ba dòng lớn:
 
-Nàng cầm bút, viết xuống ba chữ lớn trên giấy:
+**Linh khí.**
 
-**Linh khí — Kinh mạch — Đan điền.**
+**Kinh mạch.**
 
-Sau đó bắt đầu đọc.
+**Đan điền.**
 
-Một lát sau...
+Sau đó nghiêm túc mở sách.
 
-Nàng chống cằm.
+Đọc được vài dòng, nàng bỗng nhớ đến đôi mắt xanh thẳm của Thẩm Thanh Huyền.
 
-Trong đầu không hiểu sao lại hiện lên đôi mắt xanh biếc của Thẩm Thanh Huyền.
+Rồi nhớ đến lúc chàng cười.
 
-Tô Tiểu Uyển vội vàng lắc đầu.
+Tô Tiểu Uyển lập tức lấy tay che mặt.
 
-"Không được, phải học bài!"
+"Không được!"
 
-Nàng cúi xuống đọc tiếp.
+Nàng tự nhắc mình.
 
-Nhưng chỉ được vài dòng, lại nhớ đến cảnh hắn ngồi bên cạnh, nghiêng người chỉ sách cho mình.
+"Ngày mai mà còn như vậy, sư tôn nhất định sẽ cười ta nữa!"
 
-Rồi nhớ đến lúc vừa tỉnh ngủ, phát hiện hắn đang lặng lẽ nhìn nàng.
+Nàng hít sâu, cúi xuống đọc tiếp.
 
-Ánh mắt ấy rất gần.
+Lần này, nàng thật sự tập trung được một lúc.
 
-Không hề có vẻ trách móc.
+Cho đến khi nhìn thấy hình vẽ kinh mạch trên trang sách.
 
-Chỉ ôn hòa, trầm tĩnh.
+Nàng chợt nhớ bàn tay thon dài của chàng khi chỉ vào hình vẽ ấy.
 
-Nàng nhớ rõ cả hàng mi dài cùng nốt ruồi nhỏ dưới mắt trái.
+"..."
 
-Hai má Tô Tiểu Uyển bỗng nóng lên.
+Tô Tiểu Uyển chậm rãi đặt bút xuống.
 
-Nàng vội lấy hai tay che mặt.
+Một lát sau, nàng gục trán lên bàn.
 
-Một lúc sau, nàng khe khẽ thở dài.
+"Sư tôn ơi..."
 
-"Sư tôn đẹp như vậy, bảo người ta tập trung kiểu gì chứ..."
+Giọng nàng đầy bất lực.
 
-Nói xong, nàng lại tự cảm thấy câu ấy không đúng.
+"Người đẹp như vậy, bảo con làm sao tập trung học bài đây?"
 
-Đâu phải chỉ vì hắn đẹp.
+Không ai nghe thấy lời than thở ấy.
 
-Nàng đã từng nhìn thấy không ít người có dung mạo xuất chúng, trong phim ảnh cũng có, ngoài đời cũng có.
+Chỉ có quyển sách vẫn mở trước mặt nàng.
 
-Nhưng nàng chưa từng muốn nhìn vào mắt một người lâu đến vậy.
+Và bài kiểm tra ngày mai đang chờ đợi.
 
-Cũng chưa từng vì một ánh mắt mà nhớ mãi đến tận tối.
-
-Tô Tiểu Uyển ngồi yên.
-
-Trong lòng bỗng xuất hiện một cảm giác rất nhẹ, như mặt hồ đang yên tĩnh chợt có gió lướt qua.
-
-Nàng không biết đó là gì.
-
-Chỉ cảm thấy mỗi khi nhớ đến đôi mắt ấy, khóe môi mình lại bất giác cong lên.
-
-Nàng chậm rãi cúi đầu, nhìn quyển sách trước mặt.
-
-Một lúc lâu sau mới nhỏ giọng lẩm bẩm:
-
-"Ngày mai... nhất định phải chăm chú nghe giảng."
-
-Rồi nàng ngừng lại.
-
-Khóe môi hơi cong.
-
-"Nhưng nhìn sư tôn một chút chắc cũng không sao đâu nhỉ..."
-
-Ngoài sân, gió đêm nhẹ nhàng lay động những cành lê.
-
-Ánh trăng dần phủ lên mái ngói Lê Hoa Viện.
-
-Một buổi học đầu tiên đã kết thúc.
-
-Đối với Thẩm Thanh Huyền, đó chỉ là một ngày có thêm chút náo nhiệt giữa những tháng năm tu hành dài đằng đẵng.
-
-Đối với Tô Tiểu Uyển, đó là một ngày nàng chẳng học thuộc được bao nhiêu.
-
-Nhưng lại nhớ rất rõ một đôi mắt.
-
-Đôi mắt xanh biếc như hồ nước giữa núi tuyết.
-
-Và mỗi lần nhớ đến, nàng đều không nhịn được mà mỉm cười.
-
-*Có những rung động đầu đời vốn chẳng cần đến một lời tỏ tình.*
-
-*Đôi khi, chỉ bắt đầu từ một ánh mắt mà người ta không nỡ rời đi.*
+*— Hết chương 6 —*
