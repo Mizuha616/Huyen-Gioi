@@ -2,292 +2,496 @@
 
 Quyển I — Song Linh
 
-# Chương 3: Người Đến Từ Phương Nào
+# Chương 3 — Người Đến Từ Phương Nào
 
-“Ta có vài chuyện muốn hỏi ngươi.”
+"Ta có vài chuyện muốn hỏi ngươi."
 
-Thẩm Thanh Huyền nghiêng người nhường lối. Tô Tiểu Uyển nhìn hắn, do dự một lát rồi bước vào phòng.
+Thẩm Thanh Huyền nghiêng người nhường lối.
 
-Nắng xuyên qua cửa sổ, hương trầm thoang thoảng trong không khí. Hắn kéo ghế cho nàng, rót một chén trà nóng.
+Tô Tiểu Uyển nhìn chàng, do dự một lát rồi bước vào phòng.
 
-“Ngồi đi. Uống chút nước trước đã.”
+Nắng xuyên qua cửa sổ, hương trầm thoang thoảng trong không khí.
 
-Tô Tiểu Uyển nhận lấy chén trà. Hơi ấm lan qua đầu ngón tay, khiến nàng bình tĩnh hơn đôi chút.
+Chàng kéo ghế cho nàng, rót một chén trà nóng.
 
-“Ngươi còn nhớ chuyện gì đã xảy ra không?” hắn hỏi.
+"Ngồi đi. Uống chút nước trước đã."
 
-Nàng nhớ. Nhưng những chuyện ấy thuộc về một thế giới khác.
+Tô Tiểu Uyển nhận lấy chén trà.
 
-“Trước khi trả lời, ta có thể hỏi ngài vài chuyện không?”
+Hơi ấm lan qua đầu ngón tay.
 
-“Ngươi cứ hỏi.”
+Nàng không biết trà ở đây có gì khác thường không, nhưng nhìn làn hơi trắng mỏng manh bốc lên, lòng nàng bỗng dịu đi đôi chút.
 
-“Ngài là ai?”
+Ít nhất, một chén trà nóng vẫn giống như ở thế giới cũ.
+
+"Ngươi còn nhớ chuyện gì đã xảy ra không?" Thẩm Thanh Huyền hỏi.
+
+Tô Tiểu Uyển cúi mắt.
+
+Nàng nhớ.
+
+Nhưng những chuyện ấy thuộc về một thế giới khác.
+
+"Trước khi trả lời, ta có thể hỏi ngài vài chuyện không?"
+
+"Ngươi cứ hỏi."
+
+"Ngài là ai?"
 
 Thẩm Thanh Huyền thoáng ngạc nhiên.
 
-Vô Ưu từng gặp hắn trong đại lễ nhập môn. Dù chỉ là đệ tử ngoại môn, nàng không thể không biết tông chủ của mình.
+Vô Ưu từng gặp chàng trong đại lễ nhập môn. Dù chỉ là đệ tử ngoại môn, nàng không thể không biết tông chủ của mình.
 
-“Ta họ Thẩm, tên Thanh Huyền.”
+"Ta họ Thẩm, tên Thanh Huyền."
 
-“Vậy ngài làm gì ở đây?”
+"Vậy ngài làm gì ở đây?"
 
-“Ta là tông chủ Thanh Vân Môn.”
+"Ta là tông chủ Thanh Vân Môn."
 
-“Tông chủ?”
+"Tông chủ?"
 
-“Người đứng đầu tông môn.”
+"Người đứng đầu tông môn."
 
-Tô Tiểu Uyển nhìn hắn, rồi cúi xuống bộ y phục trên người.
+Tô Tiểu Uyển nhìn chàng.
 
-Những từ ngữ ấy nàng từng đọc trong tiểu thuyết. Không ngờ có ngày lại nghe chúng ngoài đời thực.
+Rồi cúi xuống bộ y phục trên người.
 
-“Vậy… ta là ai?”
+Những từ ngữ ấy nàng từng đọc trong tiểu thuyết.
+
+Không ngờ có ngày lại nghe chúng ngoài đời thực.
+
+"Vậy... ta là ai?"
 
 Thẩm Thanh Huyền nhìn nàng.
 
-“Ngươi không nhớ tên mình?”
+"Ngươi không nhớ tên mình?"
 
-“Ta muốn biết ở đây mọi người gọi ta là gì.”
+"Ta muốn biết ở đây mọi người gọi ta là gì."
 
-“Vô Ưu. Đệ tử ngoại môn Thanh Vân Môn, thuộc Tu Trúc Đường.”
+"Vô Ưu. Đệ tử ngoại môn Thanh Vân Môn, thuộc Tu Trúc Đường."
 
-“Vô Ưu…”
+"Vô Ưu..."
 
 Nàng lẩm nhẩm cái tên xa lạ.
 
-Một thân phận không thuộc về mình, nhưng từ giờ lại phải mang theo.
+Một thân phận không thuộc về mình.
 
-“Còn nơi này?”
+Nhưng từ giờ lại phải mang theo.
 
-“Thanh Vân Môn.”
+"Còn nơi này?"
 
-“Không, ý ta là… thế giới này tên gì?”
+"Thanh Vân Môn."
 
-“Đây là Huyễn Giới. Một thế giới lấy tu luyện làm đạo.”
+"Không, ý ta là... thế giới này tên gì?"
+
+"Đây là Huyễn Giới. Một thế giới lấy tu luyện làm đạo."
 
 Tô Tiểu Uyển lặng người.
 
 Huyễn Giới.
 
-Không phải Trái Đất. Cũng chẳng phải nơi nào nàng từng biết.
+Không phải Trái Đất.
 
-Vậy là nàng thực sự đã xuyên đến một thế giới khác.
+Cũng chẳng phải nơi nào nàng từng biết.
 
-Thẩm Thanh Huyền quan sát phản ứng của nàng. Từ đêm qua, hắn đã nhận thấy những biến đổi bất thường trong thân thể Vô Ưu. Thiên lôi gần như hủy diệt nàng, vậy mà thân thể ấy chẳng những được tái tạo, thần hồn còn xuất hiện khí tức xa lạ.
+Vậy là nàng thực sự đã đến một thế giới khác.
 
-Giờ đây, người trước mặt không nhận ra hắn, không biết thân phận của mình, thậm chí chẳng biết Huyễn Giới là đâu.
+***
+
+Thẩm Thanh Huyền lặng lẽ quan sát phản ứng của nàng.
+
+Từ đêm qua, chàng đã nhận thấy những biến đổi bất thường trong thân thể Vô Ưu.
+
+Thiên lôi gần như hủy diệt nàng, vậy mà thân thể ấy chẳng những được tái tạo, thần hồn còn xuất hiện khí tức xa lạ.
+
+Giờ đây, người trước mặt không nhận ra chàng, không biết thân phận của mình, thậm chí chẳng biết Huyễn Giới là đâu.
 
 Đây không đơn thuần là mất trí nhớ.
 
-“Vô Ưu.”
+"Vô Ưu."
 
-Tô Tiểu Uyển ngẩng đầu, chậm mất một nhịp mới nhận ra hắn đang gọi mình.
+Tô Tiểu Uyển ngẩng đầu.
 
-“Hay ta nên gọi ngươi bằng một cái tên khác?”
+Chậm mất một nhịp, nàng mới nhận ra chàng đang gọi mình.
 
-Nàng cứng người.
+"Hay ta nên gọi ngươi bằng một cái tên khác?"
+
+Bàn tay đang cầm chén trà của nàng khựng lại.
 
 Hắn biết rồi sao?
 
+Nàng ngước mắt nhìn chàng.
+
+Gương mặt Thẩm Thanh Huyền vẫn bình thản, không có vẻ tức giận.
+
+Nhưng nàng không biết phía sau vẻ bình thản ấy là điều gì.
+
+Nếu chàng phát hiện nàng không phải Vô Ưu, liệu có xem nàng là yêu ma chiếm xác?
+
+Có bắt nàng lại không?
+
+Nàng không biết quy củ nơi này.
+
+Cũng không biết mình sẽ phải đối mặt với điều gì.
+
 Thẩm Thanh Huyền nhận ra vẻ cảnh giác trong mắt nàng.
 
-“Đừng sợ. Ta chỉ muốn biết ngươi có thực sự là Vô Ưu hay không.”
+"Đừng sợ."
 
-Tô Tiểu Uyển siết chặt tay áo, không đáp.
+Giọng chàng dịu xuống.
 
-“Đêm qua, Vô Ưu gặp thiên kiếp khi đột phá Trúc Cơ. Thân thể gần như không thể cứu chữa, nhưng cuối cùng vẫn sống sót. Ta đã kiểm tra và phát hiện thần hồn có biến đổi.”
+"Ta chỉ muốn biết ngươi có thực sự là Vô Ưu hay không."
 
-Hắn nhìn nàng.
+Tô Tiểu Uyển siết chặt tay áo.
 
-“Ta chưa biết chuyện gì đã xảy ra. Nhưng ta biết ngươi đang che giấu điều gì đó.”
+Không đáp.
 
-Sắc mặt Tô Tiểu Uyển tái đi.
+"Đêm qua, Vô Ưu gặp thiên kiếp khi đột phá Trúc Cơ. Thân thể gần như không thể cứu chữa, nhưng cuối cùng vẫn sống sót."
 
-Nếu hắn biết nàng không phải Vô Ưu, liệu có xem nàng là yêu ma chiếm xác? Có bắt nàng lại không?
+Chàng ngừng một lát.
 
-Nàng không biết quy củ nơi này, càng không biết mình sẽ phải đối mặt với điều gì.
+"Ta đã kiểm tra và phát hiện thần hồn có biến đổi."
 
-“Ngươi nghe cho rõ.” Giọng Thẩm Thanh Huyền dịu xuống. “Ta không có ý làm hại ngươi.”
+Sắc mặt nàng tái đi.
 
-Nàng ngước mắt.
+Thẩm Thanh Huyền nhìn thấy.
 
-“Chuyện đêm qua rất khác thường. Nếu truyền ra ngoài, e rằng sẽ có kẻ muốn truy xét. Ta đã dặn những người có mặt giữ kín.”
+Chàng vốn còn nhiều điều muốn hỏi, nhưng nhận ra thiếu nữ trước mặt đang sợ hãi đến mức nào.
 
-“Ngài sẽ không nói cho người khác biết?”
+Nàng ngồi rất thẳng, cố giữ vẻ bình tĩnh.
 
-“Ta sẽ không tùy tiện tiết lộ. Trước mắt, ngươi cứ ở lại Thanh Vân Môn với thân phận Vô Ưu.”
+Chỉ có những ngón tay siết chặt đến trắng bệch là không giấu được.
 
-Hắn đẩy chén trà đến gần nàng hơn.
+Chàng chợt nghĩ, nếu người trước mặt thực sự đến từ một nơi xa lạ, thì câu hỏi của mình hẳn chẳng khác nào lời đe dọa.
 
-“Ta cần biết mình đang giúp ai. Nhưng ngươi không phải kể hết mọi chuyện. Chỉ cần nói những điều ngươi có thể nói.”
+"Ngươi nghe cho rõ."
+
+Chàng nói chậm rãi.
+
+"Ta không có ý làm hại ngươi."
+
+Tô Tiểu Uyển ngước mắt.
+
+"Chuyện đêm qua rất khác thường. Nếu truyền ra ngoài, e rằng sẽ có kẻ muốn truy xét. Ta đã dặn những người có mặt giữ kín."
+
+"Ngài sẽ không nói cho người khác biết?"
+
+"Ta sẽ không tùy tiện tiết lộ."
+
+Thẩm Thanh Huyền đẩy chén trà đến gần nàng hơn.
+
+"Trước mắt, ngươi cứ ở lại Thanh Vân Môn với thân phận Vô Ưu."
+
+Tô Tiểu Uyển nhìn chén trà.
+
+Nàng vẫn chưa dám cầm lên.
+
+"Ta cần biết mình đang giúp ai," chàng nói tiếp. "Nhưng ngươi không phải kể hết mọi chuyện. Chỉ cần nói những điều ngươi có thể nói."
+
+Trong phòng yên tĩnh.
+
+Ngoài cửa sổ, một chiếc lá trúc rơi xuống bậc thềm.
 
 Tô Tiểu Uyển cúi đầu.
 
-Nàng không biết có nên tin hắn. Nhưng từ lúc tỉnh dậy, đây là người đầu tiên nói rằng nàng có thể ở lại, không cần lập tức giải thích mọi chuyện.
+Nàng không biết có nên tin chàng.
+
+Nhưng từ lúc tỉnh dậy, đây là người đầu tiên nói rằng nàng có thể ở lại.
+
+Không cần lập tức giải thích mọi chuyện.
+
+Cũng không phải lập tức rời đi.
 
 Rất lâu sau, nàng mới cất tiếng.
 
-“Ta không phải Vô Ưu.”
+"Ta không phải Vô Ưu."
 
 Thẩm Thanh Huyền yên lặng chờ đợi.
 
-“Ta tên là… Tô Tiểu Uyển.”
+"Ta tên là..."
 
-Sống mũi nàng chợt cay.
+Nàng dừng lại.
 
-Tô Tiểu Uyển.
+Một cái tên mà nàng đã nghe suốt hai mươi mốt năm.
 
-Cái tên mẹ đặt cho nàng, cái tên đã theo nàng suốt hai mươi mốt năm.
+Từng được mẹ gọi mỗi sáng.
 
-Nàng sợ rằng nếu không tự mình nói ra, sẽ chẳng còn ai ở thế giới này biết nàng thực sự là ai.
+Từng được viết trên sách vở, thẻ nhân viên, những tờ hóa đơn tiền nhà.
 
-“Tô Tiểu Uyển.”
+Ở thế giới cũ, nó bình thường đến mức nàng chưa bao giờ nghĩ mình có thể đánh mất.
 
-Thẩm Thanh Huyền khẽ lặp lại, như muốn ghi nhớ.
+Nhưng giờ đây, nếu nàng không nói ra, sẽ chẳng có ai biết.
 
-“Đó mới là tên của ta.”
+"...Tô Tiểu Uyển."
 
-“Ta nhớ rồi.”
+Nói xong, sống mũi nàng chợt cay.
+
+Thẩm Thanh Huyền khẽ lặp lại:
+
+"Tô Tiểu Uyển."
+
+Chàng phát âm từng chữ rất rõ.
+
+Không dò hỏi.
+
+Không phán xét.
+
+Chỉ như muốn ghi nhớ.
+
+"Đó mới là tên của ta."
+
+"Ta nhớ rồi."
 
 Chỉ ba chữ.
 
 Vậy mà Tô Tiểu Uyển suýt bật khóc.
 
-Hắn không chất vấn, không gọi người đến bắt nàng, cũng không nhìn nàng như quái vật.
+Ở thế giới này, cuối cùng cũng có một người biết nàng là ai.
 
-Hắn chỉ nói đã nhớ tên nàng.
+Không phải Vô Ưu.
 
-“Ngươi đến từ đâu?” hắn hỏi.
+Không phải một thân phận xa lạ.
+
+Mà là Tô Tiểu Uyển.
+
+Thẩm Thanh Huyền nhìn đôi mắt nàng đỏ lên.
+
+Chàng không hiểu hết vì sao một cái tên lại khiến nàng xúc động đến vậy.
+
+Nhưng chàng có thể đoán được đôi chút.
+
+Nếu một người bị đưa đến nơi hoàn toàn xa lạ, không còn ai nhận ra, không còn gì chứng minh quá khứ của mình, thì có lẽ cái tên chính là thứ cuối cùng nối người ấy với quê hương.
+
+Chàng không muốn ngay cả điều ấy cũng bị tước đi.
+
+***
+
+"Ngươi đến từ đâu?" chàng hỏi.
 
 Tô Tiểu Uyển nghĩ đến những tòa nhà cao tầng, những con đường đông đúc, chiếc điện thoại và những ngày làm việc mệt mỏi.
 
 Rồi nàng nhớ đến cơn mưa cuối cùng.
 
-“Ta đến từ một vị diện khác.”
+"Ta đến từ một vị diện khác."
 
-“Vị diện khác?”
+"Vị diện khác?"
 
-“Ừm. Một nơi rất khác nơi này. Không có tông môn, không có người tu tiên.”
+"Ừm. Một nơi rất khác nơi này. Không có tông môn, không có người tu tiên."
 
 Nàng cúi nhìn đôi bàn tay xa lạ.
 
-“Ta không biết vì sao mình đến đây. Cũng không biết làm thế nào để trở về.”
+"Ta không biết vì sao mình đến đây. Cũng không biết làm thế nào để trở về."
 
 Thẩm Thanh Huyền trầm ngâm.
 
-Với tu vi Đại Thừa, hắn không xa lạ với khái niệm những vị diện khác. Nhưng một thần hồn vượt qua ranh giới thế giới, xuất hiện đúng lúc thiên kiếp giáng xuống, quả thực chưa từng nghe thấy.
+Với tu vi Đại Thừa, chàng không xa lạ với khái niệm những vị diện khác.
 
-Hắn còn nhiều điều muốn hỏi, song thiếu nữ trước mặt đã bắt đầu run rẩy.
+Nhưng một thần hồn vượt qua ranh giới thế giới, xuất hiện đúng lúc thiên kiếp giáng xuống, quả thực là chuyện hiếm thấy.
 
-“Ta không quen ai ở đây cả.”
+Chàng còn nhiều điều muốn hỏi.
+
+Nhưng thiếu nữ trước mặt đã bắt đầu run rẩy.
+
+"Ta không quen ai ở đây cả."
 
 Giọng nàng nhỏ dần.
 
-“Không biết đường đi, không biết quy củ. Ngay cả thân thể này cũng không phải của ta.”
+"Không biết đường đi, không biết quy củ. Ngay cả thân thể này cũng không phải của ta."
 
-Nàng cố cười, nhưng đôi mắt đã đỏ hoe.
+Nàng cố cười.
 
-“Ta thậm chí còn chưa biết mặt mình bây giờ trông thế nào.”
+Nhưng đôi mắt đã đỏ hoe.
+
+"Ta thậm chí còn chưa biết thế giới này rộng thế nào."
 
 Thẩm Thanh Huyền khẽ nhíu mày.
 
-“Ta biết mình còn sống đã là may mắn. Nhưng…”
+"Ta biết mình còn sống đã là may mắn. Nhưng..."
 
 Nàng nghẹn giọng.
 
-“Ta thực sự rất sợ.”
+"Ta thực sự rất sợ."
 
-Tô Tiểu Uyển cúi đầu, cố ngăn nước mắt.
+Ba chữ cuối cùng run rẩy đến mức gần như không thành tiếng.
 
-Ở thế giới cũ, nàng từng nghèo khó, từng mệt mỏi đến mức chỉ muốn trốn trong chăn. Nhưng ít nhất, nàng biết đường về nhà. Khi nhớ mẹ, nàng vẫn có thể gọi điện.
+Tô Tiểu Uyển cúi đầu.
+
+Nàng không muốn khóc trước mặt một người xa lạ.
+
+Nhưng từ lúc tỉnh dậy đến giờ, nàng đã cố gắng quá lâu.
+
+Ở thế giới cũ, nàng từng nghèo khó, từng mệt mỏi đến mức chỉ muốn trốn trong chăn.
+
+Nhưng ít nhất, nàng biết đường về nhà.
+
+Khi nhớ mẹ, nàng vẫn có thể gọi điện.
 
 Còn ở đây, nàng chẳng có gì.
 
-Không người thân, không bạn bè, không một nơi quen thuộc để trở về.
+Không người thân.
+
+Không bạn bè.
+
+Không một nơi quen thuộc để trở về.
 
 Ngay cả cái tên cũng phải tự mình giữ lấy.
 
----
+Nàng không dám hỏi chàng có cách đưa mình về không.
 
-Thẩm Thanh Huyền lặng lẽ nhìn nàng.
+Nếu câu trả lời là không, nàng sợ bản thân sẽ chẳng còn đủ sức giữ vẻ bình tĩnh cuối cùng.
 
-Hắn đã sống hơn ngàn năm, gặp đủ loại người, cũng từng chứng kiến không ít lời dối trá.
+Một giọt nước mắt rơi xuống mu bàn tay.
+
+Nàng vội lau đi.
+
+"Xin lỗi..."
+
+Thẩm Thanh Huyền nhìn nàng.
+
+"Không cần xin lỗi."
+
+Giọng chàng rất khẽ.
+
+"Ngươi không làm gì sai cả."
+
+Tô Tiểu Uyển càng cúi đầu thấp hơn.
+
+***
+
+Thẩm Thanh Huyền đã sống hơn ngàn năm.
+
+Chàng gặp đủ loại người, cũng từng chứng kiến không ít lời dối trá.
 
 Nhưng nỗi sợ của Tô Tiểu Uyển lúc này không giống giả vờ.
 
-Nàng không cầu xin quyền thế, chẳng đòi hỏi lợi ích. Nàng chỉ là một thiếu nữ lạc đến nơi xa lạ, không biết mình có thể trở về hay không.
+Nàng không cầu xin quyền thế.
+
+Chẳng đòi hỏi lợi ích.
+
+Nàng chỉ là một thiếu nữ lạc đến nơi xa lạ, không biết mình có thể trở về hay không.
 
 Nếu lời nàng là thật, giữa Huyễn Giới rộng lớn này, nàng thực sự chỉ có một mình.
 
-“Tô Tiểu Uyển.”
+Chàng nhìn hai bàn tay nàng siết chặt đến trắng bệch.
+
+Theo thói quen, chàng vốn định dùng linh lực giúp nàng ổn định tâm thần.
+
+Nhưng rồi chàng dừng lại.
+
+Hai người còn chưa đủ quen để một cử chỉ đụng chạm trở nên tự nhiên.
+
+Chàng không muốn nàng vừa nói ra nỗi sợ của mình, đã phải đối diện với thêm một điều không thể hiểu.
+
+Vì vậy, Thẩm Thanh Huyền chỉ lặng lẽ đặt chén trà ấm gần nàng hơn.
+
+"Tô Tiểu Uyển."
 
 Nàng ngẩng đầu.
 
-“Ngươi không cần hiểu hết mọi chuyện ngay hôm nay.”
+"Ngươi không cần hiểu hết mọi chuyện ngay hôm nay."
 
-Hắn nói chậm rãi.
+Chàng nói chậm rãi.
 
-“Quy củ Thanh Vân Môn có thể từ từ học. Những điều chưa biết, sẽ có người hướng dẫn. Còn thân phận của ngươi, ta sẽ sắp xếp.”
+"Quy củ Thanh Vân Môn có thể từ từ học. Những điều chưa biết, sẽ có người hướng dẫn. Còn thân phận của ngươi, ta sẽ sắp xếp."
 
-“Thật sao?”
+"Thật sao?"
 
-“Ừ.”
+"Ừ."
 
-“Nhưng tại sao ngài lại giúp ta?”
+"Nhưng tại sao ngài lại giúp ta?"
 
 Thẩm Thanh Huyền thoáng trầm ngâm.
 
-Có lẽ vì nàng đang ở trong thân thể đệ tử Thanh Vân Môn. Cũng có thể vì hắn muốn tìm hiểu dị biến thần hồn.
+Có lẽ vì nàng đang ở trong thân thể đệ tử Thanh Vân Môn.
 
-Nhưng nhìn thiếu nữ đang cố kìm nước mắt trước mặt, hắn biết mình không muốn khiến nàng sợ hãi thêm.
+Cũng có thể vì chàng muốn tìm hiểu dị biến thần hồn.
 
-“Ngươi tỉnh lại tại Thanh Vân Môn. Ta là tông chủ, đương nhiên không thể bỏ mặc.”
+Đó đều là những lý do hợp lý.
 
-Tô Tiểu Uyển nhìn hắn, lòng nhẹ đi đôi chút.
+Nhưng nhìn thiếu nữ đang cố kìm nước mắt trước mặt, chàng biết mình không muốn khiến nàng sợ hãi thêm.
 
-“Chuyện ngươi vừa nói, ta sẽ giữ kín. Nếu có tình huống buộc phải xử lý để bảo vệ ngươi hoặc tông môn, ta sẽ nói rõ với ngươi trước.”
+"Ngươi tỉnh lại tại Thanh Vân Môn. Ta là tông chủ, đương nhiên không thể bỏ mặc."
 
-Hắn ngừng một lát.
+Tô Tiểu Uyển nhìn chàng.
 
-“Đổi lại, ta mong ngươi không cố ý gây nguy hiểm cho người khác.”
+Nàng không biết tông chủ ở thế giới này có quyền lực lớn đến đâu.
 
-“Ta sẽ không làm vậy.”
+Nhưng nghe giọng nói bình thản ấy, nàng bỗng cảm thấy có lẽ chàng thực sự sẽ giữ lời.
 
-“Vậy thì tốt.”
+"Chuyện ngươi vừa nói, ta sẽ giữ kín. Nếu có tình huống buộc phải xử lý để bảo vệ ngươi hoặc tông môn, ta sẽ nói rõ với ngươi trước."
+
+Chàng ngừng một lát.
+
+"Đổi lại, ta mong ngươi không cố ý gây nguy hiểm cho người khác."
+
+"Ta sẽ không làm vậy."
+
+"Vậy thì tốt."
 
 Thẩm Thanh Huyền rót thêm trà cho nàng.
 
-“Những chuyện còn lại, chúng ta từ từ tìm hiểu.”
+"Những chuyện còn lại, chúng ta từ từ tìm hiểu."
 
-Tô Tiểu Uyển nâng chén, uống một ngụm nhỏ.
+Tô Tiểu Uyển khẽ ngẩn người.
 
-Vị trà thanh dịu lan trên đầu lưỡi. Nỗi bất an vẫn còn đó, nhưng ít nhất nàng đã có một chỗ để ở, một người biết tên thật của mình.
+*Chúng ta.*
 
-Thẩm Thanh Huyền đợi nàng bình tâm rồi đứng dậy.
+Nàng đã quen nghĩ mọi việc từ đây phải tự mình gánh lấy.
 
-“Ngươi vừa tỉnh, cần nghỉ ngơi. Ta sẽ cho người mang thêm y phục và vật dụng cần thiết đến.”
+Nhưng chàng vừa nói *chúng ta*.
 
-Tô Tiểu Uyển nhìn theo hắn.
+Như thể những điều khó hiểu đang chờ phía trước không còn hoàn toàn là chuyện riêng của nàng.
+
+Nàng không biết có thể tin tưởng một người mới gặp đến đâu.
+
+Song trong khoảnh khắc ấy, nàng muốn thử tin một lần.
+
+Nàng nâng chén trà, uống một ngụm nhỏ.
+
+Vị trà thanh dịu lan trên đầu lưỡi.
+
+Nỗi bất an vẫn còn đó.
+
+Nỗi nhớ nhà cũng không hề biến mất.
+
+Nhưng ít nhất, nàng đã có một chỗ để ở.
+
+Và một người biết tên thật của mình.
+
+Thẩm Thanh Huyền nhận thấy bờ vai nàng cuối cùng cũng thả lỏng.
+
+Chàng không hỏi thêm.
+
+Có những câu trả lời không cần phải có ngay hôm nay.
+
+***
+
+Một lúc sau, Thẩm Thanh Huyền đứng dậy.
+
+"Ngươi vừa tỉnh, cần nghỉ ngơi. Ta sẽ cho người mang thêm y phục và vật dụng cần thiết đến."
+
+Tô Tiểu Uyển nhìn theo chàng.
 
 Bỗng nhiên, nàng nhớ ra một chuyện đã băn khoăn từ lúc tỉnh dậy.
 
-“Thẩm… tông chủ?”
+"Thẩm... tông chủ?"
 
-Hắn quay lại.
+Chàng quay lại.
 
-“Chuyện gì?”
+"Chuyện gì?"
 
 Nàng hơi ngượng ngùng.
 
-“Ở đây… có gương không?”
+"Ở đây... có gương không?"
 
 Thẩm Thanh Huyền thoáng ngẩn ra.
 
-Hắn vốn tưởng nàng sẽ hỏi thêm về thân phận, tu luyện hoặc cách trở về quê hương.
+Chàng vốn tưởng nàng sẽ hỏi thêm về thân phận, tu luyện hoặc cách trở về quê hương.
 
 Không ngờ lại là chuyện này.
 
-Khóe môi hắn khẽ cong.
+Nhìn vẻ mặt vừa mong đợi vừa ngượng ngùng của nàng, khóe môi chàng khẽ cong.
 
-“Có.”
+"Có."
+
+*— Hết chương 3 —*
